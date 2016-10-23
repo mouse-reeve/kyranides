@@ -85,7 +85,7 @@ crude Misy (???). Manna (???). Illyrick Iris (???).
 Vitriol (???). dissolved till they be dry; for
 this purges and fills ulcerous and eating Sores,
 and it stops a supervening Inflammation. And
-this is far greater. 
+this is far greater.
 
 _For Putrefaction of the
 Tongue, and Mortification of the Gums_. But
@@ -126,7 +126,7 @@ King's Evil, and eating Flesh, and putrid Ulcers
 and Gangrenes_. And it has also another
 very famous Virtue and Divine Efficacy; for
 it cures the King's Evil, and putrid Ulcers and
-Gangrenes, and eating Sores, made up with _Aristolochia_ into Plaster. And its Root rosted brings a good Colour into the Face, and a tender Skin. _And it takes out Moles, Corns, and Freckles; Mixt with Flower of bitter Vetch and Fœnugreek, it takes away Corns, Freckles and black Moles. And boiled with Oyl till it congeals, it congeals, it is good for the same. And the Root broken in Wine, takes away Lividness of the Eyes and Whitlows. _For a Swelling_. It an ends any Ulcer of the Genitals, and dissipates and disperses Swellings. _For the Epilepsie_. An ounce of it given every day for a Year with _Oxymel_, cures it. _For the Apoplexy
+Gangrenes, and eating Sores, made up with _Aristolochia_ into Plaster. And its Root rosted brings a good Colour into the Face, and a tender Skin. _And it takes out Moles, Corns, and Freckles; Mixt with Flower of bitter Vetch and Fœnugreek, it takes away Corns, Freckles and black Moles_. And boiled with Oyl till it congeals, it congeals, it is good for the same. And the Root broken in Wine, takes away Lividness of the Eyes and Whitlows. _For a Swelling_. It an ends any Ulcer of the Genitals, and dissipates and disperses Swellings. _For the Epilepsie_. An ounce of it given every day for a Year with _Oxymel_, cures it. _For the Apoplexy
 and Swimming in the Head, and Biting of
 Serpents, and Miscarriage_. It is also good for
 Apoplectick and Vertiginous Persons: Give
@@ -189,7 +189,7 @@ _Harpocration_ his Speech: _O blessed Herb!
 Conducter of the Gods, and a Royal Conducter,
 more powerful than all Herbs, having the Principality of Earth, and
 Heaven, and Air, and dissolving all Power! O Grape bearing Drink! maist thou loosen the Limbs, cause Sleep! No Speech nor Body shall expel thee; but thou findest out whatever things are in the Minds of Mortals, and what Mysteries they have hidden in their Mind. The Vine makes manifest all Secrets, and all things hat shall be concealed by Writing, or by Medicine, or by Enchantment, or by the Sword, or by Science: For these may be said to be the Mysteries of the Vine._ And it has other mundane things also which are not unprofitable to Mortals, yea they bring Delight and Joy. Therefor thus I read on: The holy Speech, as Kirani has it. _For Joy and Exultation._ O Blessed Queen bestowed of GOD, most holy Mother, and more Divine than all Plants! first Nature affects the Grape, the Grape makes heavenly wine! Before you have said this, send the Cup, Bowl or Flagon about, of which all do drink, and they break out in Joy, no man complaining or asking. For {G}, i. e. _Exultation_. The Juice of the Grape drunk causes great Joy. Plant it in every place. For neither the Solemnities of the Gods, nor of Mortals, who have a term in their Life; nor what things in Life do come, nor what things now go out, nor some of those things that are acted in Life, can be done without this Plant. Also occult things require planting of it._For people troubles with Quartane Agnes_; It yet remains for me to speak if the certain _Cacodemon_ (or evil Spirit) which is call'd a Quartanary, who is not easily conquered by five Fortitudes of the first Decan of _Capricorn_, because he sees not, nor hears, for he is without a Head. Therefore take the Grape having four Seeds, take out the Kernels with your Nails, and not with your
-Mouth, and put them in a course Cloth, and hang them about your Neck, and it will cause Health. And the Stone that is in the Head of the Fish, hung about the Neck, takes away a Quartane. Therefore take the Eagle-Stone, and engrave also an Eagle upon it, and under the Stone put the Kernels of the Grape, and the top of the Feathers of an Eagles wing; and if you have not an Eagle, of an Hawks, and enclosing it, wear it. For it will preserve you from all the foresaid Occasions of Evil: Moreover it will give you power to speak, and to have friendly conferences with Great Men; and it is good for many other things; all which I will not declare. 
+Mouth, and put them in a course Cloth, and hang them about your Neck, and it will cause Health. And the Stone that is in the Head of the Fish, hung about the Neck, takes away a Quartane. Therefore take the Eagle-Stone, and engrave also an Eagle upon it, and under the Stone put the Kernels of the Grape, and the top of the Feathers of an Eagles wing; and if you have not an Eagle, of an Hawks, and enclosing it, wear it. For it will preserve you from all the foresaid Occasions of Evil: Moreover it will give you power to speak, and to have friendly conferences with Great Men; and it is good for many other things; all which I will not declare.
 
 
 
@@ -207,7 +207,7 @@ Letter III. Γ.
 
 _Glykiside_ is the Herb _Pæon_; and it has a Fruit like the Gum of an Almond Tree. Some of its Seeds are open, and other close. _Glaux_ is a Bird which is ascribed to _Pallos_; it has a Crown of Feathers upon its Head, and great Eyes like a Night-Raven, living in the Fields. _Gnanthius_ is a Stone as hard as a Milstone, like a Granate. _Glaucus_ is a Sea-Fish, known to all men. Now there are two sorts of the Herb, Female and Male. _That a Woman may conceive_: If therefore a Woman do not retain the Man's Seed, and would conceive, let her be girt with the close Seeds of the Divine Herb, trying it in a Linnen Cloth died of seven Colours; let it be put about her Twist. _That she may not conceive_; But if she have no mind to conceive, let her gird her self with the open Seeds, and the Way of a Mules Ear; as long as she pleases.
 _For casie (?) Travail_: But if there
-be danger in the Pains of Birth, bruise the open Seed, and make it up with Oyl, and (?) and anoint the Loyns and Twist, and she will bear without pain. _To chase away Devils and Phantasms_: And its Root in Fume or in Drink, expels Devils and all (?) Phantasms, and being worm, it does the same. _For a Miracle_. The Eyes of the Bird _Glaux_ and of the Fish _Glaucus_, bruise them with a little Sea-water, and put them in a GLass bottle. But it is better to dissolve the G??? of them both, and to keep it in a Glass bottle. And when you would have the Virtue of Nature to be admired, Parchments must be written with the foresaid soft Collyrium, and in the day indeed it will not appear; but when it is dark, that which is written must be read. And, if you please, draw any _Animal_ upon the wall, and when Night comes they that are in the dark shall think what they see is either Devils or Gods. _That one may seem strong, and glorious, and faithful to men, and that he may see true Dreams_. And if any one will engrave upon the Stone _Gnanthius_ the Bird _Glaux_, and under its Feet the Fish, and under these enclose the Eyes, and wear it, abstaining from Swines Flesh and from uncleanness, when it is dark he shall appear an elegant Man; therefore those that see him, shall think him Divine. In the day time also whatsoever he sayes, he shall be believed in it. And has in bed it will shew true Visions. 
+be danger in the Pains of Birth, bruise the open Seed, and make it up with Oyl, and (?) and anoint the Loyns and Twist, and she will bear without pain. _To chase away Devils and Phantasms_: And its Root in Fume or in Drink, expels Devils and all (?) Phantasms, and being worm, it does the same. _For a Miracle_. The Eyes of the Bird _Glaux_ and of the Fish _Glaucus_, bruise them with a little Sea-water, and put them in a GLass bottle. But it is better to dissolve the G??? of them both, and to keep it in a Glass bottle. And when you would have the Virtue of Nature to be admired, Parchments must be written with the foresaid soft Collyrium, and in the day indeed it will not appear; but when it is dark, that which is written must be read. And, if you please, draw any _Animal_ upon the wall, and when Night comes they that are in the dark shall think what they see is either Devils or Gods. _That one may seem strong, and glorious, and faithful to men, and that he may see true Dreams_. And if any one will engrave upon the Stone _Gnanthius_ the Bird _Glaux_, and under its Feet the Fish, and under these enclose the Eyes, and wear it, abstaining from Swines Flesh and from uncleanness, when it is dark he shall appear an elegant Man; therefore those that see him, shall think him Divine. In the day time also whatsoever he sayes, he shall be believed in it. And has in bed it will shew true Visions.
 
 
 
@@ -392,10 +392,10 @@ put underneath: For this is Divine.
 
 LETTER VII. H.
 {G}, the Herb we call _Fryngo_. {G},
-the Sun-Bird, or {G}, i. e _having J??let
+??? _the Sun-Bird, or {G}, i. e having J??let
 Wings. {G}, S. emagines, Vulcane's Stone
 {G}, the Fish Delight, some call it Assidion, a
-kind of Anchovy.
+kind of Anchovy._
 
 _Eryngo_ is an Herb like _Calamus_; it grows
 thorny; its Vertues are such as these: For,
@@ -681,9 +681,9 @@ is a Bird, which is called _Iynx_, as
 _Kiranus_ says in the Verse of Theocritus; for
 Example's sake:
 
-{G}.  
+{G}.
 Per te, Iynx, meus ille domum vir quæso
-trahatur!  
+trahatur!
 _Pray_ Iynx! _Fetch my Husband home again!_
 
 Some call it _Jugius Ales_. _Kynædius_ is a Fowl,
@@ -720,10 +720,10 @@ lay the Herb under the Pillow, he that lies
 upon it shall not erect, and if you give a little
 of the Herb powdered in drink to a
 Man, he will not erect to coition for seven
-dayes. _That a Cock way not tread an Hen_;
+dayes. _That a Cock may not tread an Hen_;
 Give it to a Cock in Bran or Paste, and he
 will not tread a Hen. _That a man for one
-day may be {G}, i. e. a _Fornicator_; That
+day may be {G},i_ i. e. _a Fornicator_; That
 which is in the Fish _Kynædius_, in the third
 Joynt of the backbone, if you give it in
 meat or drink, a man will be a manifest Fornicator
@@ -734,7 +734,7 @@ Male Animal. If therefore any thing take
 this Stone, it will get upon the like animal,
 as upon a Female. And the aforesaid stone
 does all these things. _To obtain favour and
-friendship; If anyone carry the Tongue of
+friendship_; If anyone carry the Tongue of
 the Bird in a Plate of Gold, he shall have
 Favour, and be beloved of all. _To make
 Men soft_; if the ends of the wings, of the
