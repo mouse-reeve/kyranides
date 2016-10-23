@@ -20,7 +20,7 @@ of Blood_; And four Spoonfulls of the
 Juice given to any in a bloody Flux cure him.
 _Against Drunkenness_; And if a man, otherwise
 well, have a mind to drink much Drink,
-let him drink of the Juice of the Leaves (??? fj. ???)
+let him drink of the Juice of the Leaves ℥j.
 and as much Vinegar fasting. _That one be
 not made drunk_; And if one drink the Stone
 that is in the Head of the Fish, with Wine,
@@ -38,15 +38,15 @@ the Hands, and bloody Fluxes, and any Disease
 of the Arse. And GOD himself gave this, that
 mortal Body might not fail._ Take of White
 Wine a Pint and an half, with the tender
-Buds of the Herb XL, and Coriars Galls (??? §iij ???).
+Buds of the Herb XL, and Coriars Galls ℥iij.
 Boyl two thirds away; this cures Dysenteries
 and Lienterics, and broken Bones of the hands,
 and every Disease of the Arse, and every such
 thing, if it be drunk. A Decoction of the
-Leaves also, drunk with a little Honey, asswawages
+Leaves also, drunk with a little Honey, asswages
 every Disease of the Neck: And if you
 add a little of the Stone, that Disease will
-neither encrcase, nor return again. I have
+neither encrease, nor return again. I have
 seen several, who have had their Bones crushed,
 and I admired how they were cured.
 One can testifie this, who was twenty five
@@ -80,9 +80,9 @@ will cure: The Stone applied, and the Fat
 of the Fish anointed, does also cure. _For
 Putrefaction of the Gums, and the Jaws, and for
 cancerous and eating Ulcers in the whole Body._
-Of the Juice of the Leaves (???). Alum (???).
-crude Misy (???). Manna (???). Illyrick Iris (???).
-Vitriol (???). dissolved till they be dry; for
+Of the Juice of the Leaves ℥iij. Alum ℥iv.
+crude _Misy_ ℥iv. Manna ℥iv. Illyrick Iris ℥j.
+Vitriol ℥iv. dissolved till they be dry; for
 this purges and fills ulcerous and eating Sores,
 and it stops a supervening Inflammation. And
 this is far greater.
@@ -92,14 +92,14 @@ Tongue, and Mortification of the Gums_. But
 now we tell you something that is great. We
 saw something marcid and cancerous in the
 Tongue, which was like also to mortifie the
-Gumsl therefore by applying the Juice of
+Gums; therefore by applying the Juice of
 the Leaves mixt with Honey, it was cured;
 then strewing on dry _Iris_, the Ulcer filled
 up. _For all Breaches, and a _Polypus_, and
 Frettings, and Eatings, and Humors, and
 whatever happens about the Nose, a Divine Medicine_.
-Of the Juice of the Leaves (???). Manna,
-Vitriol, Frankincense, _Misy_ (?), _Aristolochia_,
+Of the Juice of the Leaves ℥iv. Manna,
+Vitriol, Frankincense, _Misy_, _Aristolochia_,
 each three ounces: Rub them till all is dry, and use the Divine Virtue.
 
 _For Baldness and Shedding of the Hair, Sores, Scars, and any Diseases about the Head_:
@@ -107,14 +107,14 @@ Apple the Juice of the Herb and the Juice of _Potamogeiton_,
 and the Juice of _Seseli_ skillfully mixt, anoynt for three days.
 
 _A Divine Medicine to keep the Teeth sound and firm, which I would not keep from you_.
-Of the Juice of the Grapes (???). or viii Spoonfulls, the Bark of Mulbery-Tree Root (???).
+Of the Juice of the Grapes ℥j. or viii Spoonfulls, the Bark of Mulbery-Tree Root ℥vj.
 Boyl it to half, and give it to wash the
 Mouth for three or five or seven days, and
 your Teeth will never ake. If one will diligently
 consider, the Vine will cure all Diseases
 from the Head to the Feet. This Herb
 is called _THEOdorica_, i. e. _Given of GOD_.
-_Kiranus and Harpocration_ do thus far agree.
+_Kiranus_ and _Harpocration_ do thus far agree.
 
 Then _Kiranus_ brings something new, and
 says, _For Urine and Stool_; The Sprouts, I
