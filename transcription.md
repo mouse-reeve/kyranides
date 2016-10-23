@@ -290,3 +290,54 @@ cure the Head-ach, and expel all Diseases of
 the Eyes and Head from the Bearer. Moreover
 they represent him rich and potent to
 all Men.
+
+LETTER V. E.
+
+{G}, _the Herb Rocket. Enlui, aëdon,
+a Nightingale. {G}, a Sea-Urchin. Enanthus, A Stone._
+
+_Fuzomen_ is the herb Rocket, which is eaten
+among pot-herbs, and known to all men.
+_Echinus_, the Sea-Urchin is also known to all.
+_Enjui_ is a Nightingale, known well enough.
+_Enanthus_ is a Stone of every colour, and it
+is dedicated to _Venus_, because it is of many
+colours. Rocket therefore heats, because
+here(?) is an Error among many, and they,
+know not the nature of every Herb. Against
+Lust and Erection. Therefore Priests eat Rue,
+and the herb _Agnus castus_, for Chastity's sake,
+For green Rocket quenches Lust much, and
+frequent Erection, and Dreams. Wherefore
+Priests, when by their turns they serve in the
+Temples, do often eat this, and they fall not
+into pollution. _For Erection_, of the Seed of
+this ?iv. Pepper ?i. with Honey morning
+and night take as much as you can take up
+with two fingers. But if a man be grown old,
+and have a loose and hanging Member, he
+shall do this. Of Seed of Rocket ?xvj. Cumin
+?viij, Pepper ?iv. of Seed of Purslain ?ij.
+Being bruised and made up with Honey, let
+him take it morning and evening. It is incomparable.
+And the eyes and the heart of a
+Nightingale laid about men in Bed, keep them
+awake. _To make one die for sleep_. For if any
+one dissolve them, and give them secretly to
+any in drink, he will never sleep, but will so
+die, and it admits not of Cure. _For Epileptick
+Persons_. If you give half the Navil of
+a Sea-Urchin dissolved, to such as are held
+of an Epilepsie, they will presently be relieved;
+but give it only with Honey frequently.
+_That you may be amiable to men, and
+known for eloquence, and acceptable, and that
+you may be feared of Men and wild Beasts_.
+In the Stone _Enanthus_ with Gold engrave
+_Venus_, and let her Locks and the Hair of her
+Head be tied to her Head, and put the root
+of the Herb, and the Nightingale's Tongue
+under her, enclose it and wear it, and you
+will be amiable to all men, and known, and
+eloquent; and not only to Men, but Devils
+and wild Beasts will fly from you.
