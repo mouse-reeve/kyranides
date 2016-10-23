@@ -102,7 +102,7 @@ Of the Juice of the Leaves (???). Manna,
 Vitriol, Frankincense, _Misy_ (?), _Aristolochia_,
 each three ounces: Rub them till all is dry, and use the Divine Virtue.
 
-_For Baldness and Shedding of the Hair, Sores, Scars, and any Diseases about the Head:
+_For Baldness and Shedding of the Hair, Sores, Scars, and any Diseases about the Head_:
 Apple the Juice of the Herb and the Juice of _Potamogeiton_,
 and the Juice of _Seseli_ skillfully mixt, anoynt for three days.
 
@@ -111,7 +111,7 @@ Of the Juice of the Grapes (???). or viii Spoonfulls, the Bark of Mulbery-Tree R
 Boyl it to half, and give it to wash the
 Mouth for three or five or seven days, and
 your Teeth will never ake. If one will diligently
-confider, the Vine will cure all Diseases
+consider, the Vine will cure all Diseases
 from the Head to the Feet. This Herb
 is called _THEOdorica_, i. e. _Given of GOD_.
 _Kiranus and Harpocration_ do thus far agree.
@@ -193,7 +193,7 @@ Mouth, and put them in a course Cloth, and hang them about your Neck, and it wil
 
 
 
-LETTER II. {Greek G}
+LETTER II. Γ.
 
 {G} is a Bird which is called {G} i. e. _a Crow_, a common Animal, and known to all People, living to five hundred years of age. {G} is a precious Stone, a Beril which is called {G} i. e. _All Life_. {G} is a _Sea-Lobster_, so called from its likeness to {G}, i. e. red Tiles. {G}, i. e. The Herb Sevine, known to all People.
 
@@ -201,21 +201,21 @@ _For Dyspnoïck (?), Orthopnoïck and Asthmatic Persons:_ Make this Electuary; O
 
 
 
-Letter III. (???).
+Letter III. Γ.
 
 {G}, _the Herb Pæony_. {G} a sort of Owl. {G}, a Stone. {G} a Sea-fish known to all men.
 
-_Glykiside_ is the Herb _Pæon_; and it has a Fruit like the Gum of an Almond Tree. Some of its Seeds are open, and other close. _Glaux_ is a Bird which is ascribed to _Pallos_; it has a Crown of Feathers upon its Head, and great Eyes like a Night-Raven, living in the Fields. _Gnanthius_ is a Stone as hard as a Milstone, like a Granate. _Glaucus_ is a Sea-Fish, known to all men. Now there are two sorts of the Herb, Female and Male. _That a Woman may conceive_: If therefore a Woman do not retain the Man's Seed, and would conceive, let her be girt with the close Seeds of the Divine Herb, trying it in a Linnen Cloth died of seven Colours; let it be put about her Twist. _That she may not conceive; But if she have no mind to conceive, let her gird her self with the open Seeds, and the Way of a Mules Ear; as long as she pleases.
+_Glykiside_ is the Herb _Pæon_; and it has a Fruit like the Gum of an Almond Tree. Some of its Seeds are open, and other close. _Glaux_ is a Bird which is ascribed to _Pallos_; it has a Crown of Feathers upon its Head, and great Eyes like a Night-Raven, living in the Fields. _Gnanthius_ is a Stone as hard as a Milstone, like a Granate. _Glaucus_ is a Sea-Fish, known to all men. Now there are two sorts of the Herb, Female and Male. _That a Woman may conceive_: If therefore a Woman do not retain the Man's Seed, and would conceive, let her be girt with the close Seeds of the Divine Herb, trying it in a Linnen Cloth died of seven Colours; let it be put about her Twist. _That she may not conceive_; But if she have no mind to conceive, let her gird her self with the open Seeds, and the Way of a Mules Ear; as long as she pleases.
 _For casie (?) Travail_: But if there
 be danger in the Pains of Birth, bruise the open Seed, and make it up with Oyl, and (?) and anoint the Loyns and Twist, and she will bear without pain. _To chase away Devils and Phantasms_: And its Root in Fume or in Drink, expels Devils and all (?) Phantasms, and being worm, it does the same. _For a Miracle_. The Eyes of the Bird _Glaux_ and of the Fish _Glaucus_, bruise them with a little Sea-water, and put them in a GLass bottle. But it is better to dissolve the G??? of them both, and to keep it in a Glass bottle. And when you would have the Virtue of Nature to be admired, Parchments must be written with the foresaid soft Collyrium, and in the day indeed it will not appear; but when it is dark, that which is written must be read. And, if you please, draw any _Animal_ upon the wall, and when Night comes they that are in the dark shall think what they see is either Devils or Gods. _That one may seem strong, and glorious, and faithful to men, and that he may see true Dreams_. And if any one will engrave upon the Stone _Gnanthius_ the Bird _Glaux_, and under its Feet the Fish, and under these enclose the Eyes, and wear it, abstaining from Swines Flesh and from uncleanness, when it is dark he shall appear an elegant Man; therefore those that see him, shall think him Divine. In the day time also whatsoever he sayes, he shall be believed in it. And has in bed it will shew true Visions. 
 
 
 
-Letter IV. {Greek delta}.
+Letter IV. Δ.
 
 _Draconthea, the Herb Dragons_. {G}, _the Bird Woodpecker_. _Draco, a Fish_. _Dendritis, a Tree stone_.
 
-_Draconthea_ is an Herb, having Seed like the eyes of a Dragon, bread leaves, is bad altogether. The _Woodpecker_ is a Bird known to all, as big as a Quail, it perforates Oaks, Olive trees and Nut trees, that it may make a Nest in the middle of the Wood. The _Dragon_ is a Sea fish without scales: After therefore that it has voided much, and would also(?) over great violence, the Cloud of Heaven snatch it into the Air, and dash it against the Mountains, tearing it Limb from Limb, so that is it no more. _That one be not hurt_; It is two forked, like a Horses Tail, two fingers in length. Putting it in Oyl, keep it. Putting it in Oyl indeed, it preserves all People from fascination and infirmity. For I saw this upon the Sea coasts of the _Assyrian_ Countrey. _Dendrites is a Stone, which is known by many; This grows in
+_Draconthea_ is an Herb, having Seed like the eyes of a Dragon, bread leaves, is bad altogether. The _Woodpecker_ is a Bird known to all, as big as a Quail, it perforates Oaks, Olive trees and Nut trees, that it may make a Nest in the middle of the Wood. The _Dragon_ is a Sea fish without scales: After therefore that it has voided much, and would also(?) over great violence, the Cloud of Heaven snatch it into the Air, and dash it against the Mountains, tearing it Limb from Limb, so that is it no more. _That one be not hurt_; It is two forked, like a Horses Tail, two fingers in length. Putting it in Oyl, keep it. Putting it in Oyl indeed, it preserves all People from fascination and infirmity. For I saw this upon the Sea coasts of the _Assyrian_ Countrey. _Dendrites_ is a Stone, which is known by many; This grows in
 India in Rocky maritime places about six
 fingers high. _For Hearing_; The Seed of the
 Herb _Draconthea_ worn sharpens the Sight
@@ -291,6 +291,8 @@ the Eyes and Head from the Bearer. Moreover
 they represent him rich and potent to
 all Men.
 
+
+
 LETTER V. E.
 
 {G}, _the Herb Rocket. Enlui, aëdon,
@@ -299,7 +301,7 @@ a Nightingale. {G}, a Sea-Urchin. Enanthus, A Stone._
 _Fuzomen_ is the herb Rocket, which is eaten
 among pot-herbs, and known to all men.
 _Echinus_, the Sea-Urchin is also known to all.
-_Enjui_ is a Nightingale, known well enough.
+_Enlui_ is a Nightingale, known well enough.
 _Enanthus_ is a Stone of every colour, and it
 is dedicated to _Venus_, because it is of many
 colours. Rocket therefore heats, because
@@ -312,12 +314,12 @@ frequent Erection, and Dreams. Wherefore
 Priests, when by their turns they serve in the
 Temples, do often eat this, and they fall not
 into pollution. _For Erection_, of the Seed of
-this ?iv. Pepper ?i. with Honey morning
+this ℥iv. Pepper ℥i. with Honey morning
 and night take as much as you can take up
 with two fingers. But if a man be grown old,
 and have a loose and hanging Member, he
-shall do this. Of Seed of Rocket ?xvj. Cumin
-?viij, Pepper ?iv. of Seed of Purslain ?ij.
+shall do this. Of Seed of Rocket ℥xvj. Cumin
+℥viij, Pepper ℥iv. of Seed of Purslain ℥ij.
 Being bruised and made up with Honey, let
 him take it morning and evening. It is incomparable.
 And the eyes and the heart of a
@@ -341,3 +343,504 @@ under her, enclose it and wear it, and you
 will be amiable to all men, and known, and
 eloquent; and not only to Men, but Devils
 and wild Beasts will fly from you.
+
+
+LETTER VI. Z.
+{G}, _the Herb Bindweed. Zaukos, a Bird.
+Zmirena, a Sea-fish. Smaragdus, an Emerauld._
+
+_Smilax_ is a very strong Herb, like the Plant
+Ivy. _For Women's Travail_. If you Crown a
+Woman with it, that has hard Travail, she
+will presently bring forth without pain. _For
+Prægnation_. If any Woman suffer-difficulty
+with pain in prægnation, gird her with it,
+and she will breed without pain. And if
+you mix of the Juyce of the. Leaves ℥j. and
+of Honey another and give it an Hydropick
+person, the party will purge without
+danger: But a Woman, if she drinks it,
+will suffer a Flux of Blood. _Zaucos_ or _Zeucos_,
+a sort of Bird, some call it a _Harpe_. For
+it is a Vultur devouring white Carkases.
+_Zmirena_, a Sea-Lamprey, is known to all.
+An Emerauld is a known Stone. Therefore
+if you give the Gut of an _Harpe_ to any one
+to eat, the Eater will be torn; for he will be
+insatiable. And if yon give the great Cut
+of it, which is called {G} or _Colon_, powdered
+in drink to any or roasted to eat,
+it will persectly cure the Colick. _For People
+troubled with the Quartane Ague and the Leprosie_:
+And its Fat applied with an Oyntment of
+Oyl expels a Quartane. The Dung also applied
+with Vinegar stops Leprosie. And whatever
+you will of the Liver given inwardly,
+corrupts all things that are within. _For all
+disturbance of Dreams, and Lunaticks, and those
+that are troubled with the Colick_. The Emerauld
+is a green precious Stone. Engrave ,
+therefore upon it the Bird _Harpe_, and under
+its feet a Sea-Lamprey, and under the Stone
+enclose the Root of the Herb, and wear it,
+against Disturbance, and Dreams, and Stupidity.
+It causes Rest to Lunaticks, and in
+them that are troubled with the Colick. And
+it is better, if the Fat of the Sea-Lamprey be
+put underneath: For this is Divine.
+
+
+LETTER VII. H.
+{G}, the Herb we call _Fryngo_. {G},
+the Sun-Bird, or {G}, i. e _having J??let
+Wings. {G}, S. emagines, Vulcane's Stone
+{G}, the Fish Delight, some call it Assidion, a
+kind of Anchovy.
+
+_Eryngo_ is an Herb like _Calamus_; it grows
+thorny; its Vertues are such as these: For,
+if any carry its Root, he shall not at any
+time suffer the Treachery of Devils. _That
+the Devil may confess who he is, and from whence?
+And to cast him out_: And if any one have
+an aëreal Spirit, put one of these Roots under
+his Cloaths, and he will confess to you
+who he is, and will fly from the Man, a stranger
+to him. And the whole Herb drunk
+with its Root in Water and Honey asswages
+the Colick. _For the Stone-Colick and the Stone,
+and the Strangury_: And if it be made hot,
+and drunk with Water and Honey, it cures
+those those that are troubled with the Stone,
+and the Stone-colick, and the Strangury.
+And let them drink it for sixteen days, every
+Morning, in Bed: But if you heat {G}
+(which is Pomgranate-Rind) with it, it will
+do more good. _Hedone_ is a Sea-fish, which
+is called _Aphydion_, being often eaten, it cures
+the bloody Flux, and Pains in the Kidneys.
+And in _Hephastion_'s i. e. _Vulcane_'s Stone, which
+is called _Pyrites_, or the Fire-stone, if any one
+engrave a _Phanicopterus_, and at its Feet a
+Scorpion, and put under the Stone the Root
+of the Herb, he will have a Phylactery, and
+a Guard, or a Treacle against poysonous
+Stings; it also drives away nocturnal Phantasms,
+and all Witchcraft, and is good also
+for those that arc troubled with the Stone.
+Being worn, it confers the Grace and Vertue
+of Prudence. _Saturnius_ himself wore it, and
+_Phaos_ in Heaven; and in Earth it possesses
+Gold and Silver; it destroys Infirmity, and
+cruel Poverty, and the evil Bonds of Necessity,
+that which gives Trouble is not good,
+but forces every Earth, beating Men with
+the Degree of Fortune, binding them in Necessities.
+A certain Saturnine King _Kiranis_
+{G}, turning and rolling circular upon
+the Centre, with uncorrupt, and never failing
+Changes, whirling all things from the
+_East_ to the _West_, in the seven Arctick, i. e.
+_North_, Stars, holding and moving all strange
+things. Soul, be thou content and sufficient
+in those things which thou actest in failing
+Time! and tho' thou be after Prægnation,
+yet presently thou knowest GOD in the
+Air, and in the Clouds; thou sufferest Infirmity
+upon the Earth, in which being an
+Inhabitant, thou art tormented. O blessed
+Soul! being thenceforth immortal, cease from
+corporeal Labours; tho' in these thou be fixt
+to the Body, yet seek Heavenly things, or
+from whence Water is? If thou wilt learn, I will
+declare to thee all things which thou bidst
+me. Heaven is Water and Fire, the Stars
+are visible, and unspeakable Darkness is above
+the Gods. And a Sphere rolling from
+_East_ to _Weft_. And that which moves all things
+in the Sphære with wakeful Winds, sets in the
+Sea. It brings Lightning, and dissolves the
+Air, it strikes with Thunder, and flashes out
+flaming Fire; it gives sweet Rain, and gives
+all Meat good for the Belly. And the Divine
+Virtue, which does this, itself hides all things
+that are Earth-born, Roots of Herbs, which
+are abroad among divers Generations of Men;
+and they are given for all four-footed Beasts,
+creeping things, and Fowls of the Air, which
+spontaneously do all things in their Nests
+and Dens for Man, all well coloured and
+green. Let what I said before suffice thee;
+I tell thee in Prose, and show unto thee all
+the Divinations of the Soul concerning all
+Virtues; I will tell thee more, when they are
+revealed. For I have told future things in
+Metre, or Verse, concerning the fore-knowledge
+of other Animals. _For the præscience of
+those things that are in Heaven and in Earth,
+and what any one has in his Soul; and whatever
+things are done in Climates and Cities, and
+all future things to Men_. There is an Animal
+flying in the Air, which is called {G}, _upupa_,
+or Houp, of seven Colours, having a Crest on
+his Head, the height of two Fingers, which
+extends and contracts. And it is of four Colours,
+that it may be directed to the four
+Seasons of the Year. This Bird is called Cucubas,
+as it is written concerning the same, in
+a former Book, that is called _Archaicus_. And
+this Animal is sacred. Take therefore this
+Bird, and tear it in pieces, and while it is
+panting, swallow its Heart, turning to the
+Sun, in the beginning of the first, or eighth
+Hour, on _Saturday_, the Moon being Oriental,
+and drink upon it Milk of a Black Cow,
+with a little Honey in the Drink. See that
+you swallow the Heart sound and entire,
+and you will foreknow what things will be
+in Heaven, and what on Earth, and whatever
+any one has in his Soul, or whatever
+is done in Climates, and in Cities, and what
+will come to all Men. And this will be the
+Composition of the Honey; Of Honey ℔j,
+℥β. living Magnet powdered ℥ij . and tender
+Stalks of the Herb Eryngo ℥vij. When these
+are bruised, make them up with the Honey,
+And you may have another Magnet, wherein
+a _Cucubas_, i. e. an Houp is engraven, all which
+you must dip in the Composition of the Honey.
+And when you would foreknow any
+thing, first taste it with the Finger, and put
+the engraven Load-stone about your Neck,
+and you shall foreknow whatever you please,
+And if you put another Liver and Heart of
+a _Cucusa_ into the Confection, it will be better,
+because it will make you of a stronger
+Memory. And that the Heart may not be
+corrupted in him that eats it, by six-footed
+Creatures, because he that eats this Honey,
+and swallows this Heart, uses to breed
+many Lice; it is necessary, that he be anointed
+first with this Oyl. Take of Oyl ℥vijβ.
+of Staves-acre bruised ℥ij. beat them well up
+into one, put it up, and keep it in readiness.
+And when there is occasion for it, then anoint
+your self in Bed. _If therefore thou foreknowest,
+foretel to me, whether the Soul be mortal, or
+immortal?_ He answering, saith, _Hear, my Son!
+Very many false Sophisters are mistaken in the
+Understanding of the immortal Soul, but it discerns
+it self Why is it, that the Body is at rest
+in Bed, and the Soul is conversant in its proper
+place, i. e. in the Air, whence also we took
+this Soul, and sees what things are done in other
+Climates? Many times also there is a sympathy,
+as between the Mother and the Child, and
+it is solicitous for the Body in which it inhabits,
+and before the time foresees and divines future
+things, whether they be good or evil, which is
+called a Dream. Then it returns to the Body, and its
+proper Habitation, and rising it searches out. Hence
+it may appear to thee, that the Soul is immortal
+and incorporeal._ Thus says _Harpocration_, finishing
+this Letter in this place. But _Kiranis_ in
+some things sayes other wise; and in other
+things agreeing, he sayes concerning the eating
+of the _Houp_, that from it there is Præscience
+of all worldly things. Then he said
+this; Because the Head and Heart and the utmost Root
+of Eryngo is hard to be found;
+if you will find it without difficulty, you
+must do thus: Take the Seed of Eryngo and
+the Earth on which it grows, and put the
+Earth and Seed into a Potter's or wooden
+Vessel, and sprinkle it sometimes with water,
+and when the Herb is sprung up, and is come
+to maturity, like other Ervngoes, then seek,
+it, as it becomes you, fasting and chast, and
+you will find the _Gorgon_'s head. Keep this,
+and have it in readiness. Take therefore
+the Hairs of a _Phoca_, the Seal, which are between
+his Nose and his Mouth, and the
+green Jasper Stone, and the Heart and Liver
+of the Houp, and the Roots of the _Gorgon_
+of Eryngo, and the feed of {G}
+i. e. upright Vervein, and the clean Blood of
+_Chrysanthemum_, i. e. the Juice of the Herb _Plumaria_
+or _Strechas_, and the extremity of the
+heart of the Seal, and moreover the Crest of
+a Houp's head also; it were better if you
+had of all the foresaid sorts. Which you
+must wrap up with a little Moss with _Thymiana_
+of four sorts, and put it in the skin of
+an _Ichneumon_, or Seal, or Stag, or Crow, or
+Vultur, and wear it chastly. And if you guild
+the outside, it will be better, for you will acquire
+whatever you have a mind to, you will
+be beloved of Men and Women, and you
+will appear reverend, and peaceful, and quiet:
+you will tame wild Beasts, and conquer
+your Enemies. And if you put the right
+eye of a Wolf into the foresaid things, you
+will overcome all wild Beasts, and you will
+acquire by all things. Devils and wild Beasts
+will fly you, and you will be most happy,
+and healthful, and altogether unhurt. For I
+mixt also the Rennet of a Sea-Calf, I overcame
+all my Enemies, and I was invincible.
+For he that carries this Phylactery, shall have
+Gifts from GOD, which he hoped not for,
+and he shall be honoured on every hand, conquering
+all men in Word and Work, deliveing
+from all danger, and from the Devil, and
+from Witchcraft, and from all Evil. I will
+say further: _It averts all evil, and confers all
+good_. This also is a Prognostick, which only
+GOD and you must know. _This Letter of_
+Kirani _is perfect_.
+
+
+
+LETTER VIII. Θ.
+
+{G}, _Herba Dionysi, Ivy. Thyr, a Bird. Thyrsites a Stone. {G} a Fish_.
+
+_Thyrsites_ or _Thyrsus_ the Herb of _Bacchus_, fruitful and profitable for all things. _Thyr_ is a Bird like the Hawk of the Sea, having a divine Efficacy. _Thyrsite_ is a Stone like to Coral. _Thynnus_, a Tuny, is a Sea-fish, and
+is eaten, like to a Whiting, which being
+great is known indeed. _Balkera_ is _Bacchus_
+his Plant. In the Feasts of _Bacchus_ they put
+the _Thyrsus_ upon the Wine-presses, the plant of
+the earth is given to Men for chearfulness, the
+Virtues whereof I now will tell. It is good
+in Wine to pour out in the Presses, what
+Mortals forever have it given them: I will also
+say this in Verse, To see or know is of the
+Earth. _For Joy and Mirth in Drink_. If
+you bruise ℥ij of this Plant, and of the
+Stone, and shall say over it the Name of
+Bacchus, shall put it into a Flagon of Wine,
+out of which they all drink Wine, having
+drunk but one Glass they will all be mellow,
+as if they were drunk, and returning thanks
+they will say; Thou haft mad e us merry, O
+Lord! _Here Friends may drink, and go away
+merry and rejoycing_; If you put the right
+eye of a _Thynnus_ (or Tuny) or of an _Athynnus_
+in Wine, the Friends that are sate
+down will break into Joy without drinking, and they will thank you, as if they were merry. _For Discord at Feast_; And if you cut the Wing or the top of a Feather of the Bird _Thyr_ with a Sword that is all Iron, and put it into a Vessel of Wine, saying over it the Name of _Bacchus_, and when you have a mind, make them that are sate down spill it that they may shed blood and beat one another, and it will be so.
+_That you may be without Drunkenness, and for all favour and
+health_; In the Stone _Thyrsites_ engrave the
+Bird _Thyr_ and _Bacchus_ holding the Bird, and
+under the Stone enclose the Root of the Herb,
+and wear it, and you will be without Drunkenness,
+and will have Favour with all men,
+and moreover you will be without danger
+and invincible in the Palace. For this is a
+divine Dionysiack, and weakens the strength
+of _Bacchus_. For so sayes _Harpocration_.
+
+
+
+LETTER IX. I.
+
+{G}, i.e. a Willow, a fruitless Tree, j]{G},
+A Jasper Stone, green. {G}, a Kite, a Bird.
+{G}, a Fish.
+
+The Willow is a barren Tree. The Jasper
+is a known Stone. The Kite is a Bird known
+to all men. The {G} is a party-coloured
+Sea-fish, which is easily found. Bruise, I say,
+the green Leaves of Willow with a little Salt,
+and apply it to the aking Spleen, and the
+pain will presently cease. And if you would
+have the Spleen dissolved, boyl the Bark with
+_Oxymel_, and give two spoonfuls tasting, or
+thus: Make it to boyl to a third, and give
+to every one according to his own strength.
+And in a Jasper engrave a Kite tearing a Serpent,
+and under the Stone put a Stone taken
+out of the head of a Kite, and enclose it, give
+it to wear in the Breast, for it will drive away
+all pain of the Stomach, and will create
+an Appetite to eat, and good Digestion. For
+it has also other Virtues, let it be worn only
+in the Breast.
+
+
+
+LETTER X. K.
+
+{G}, {G}, _an Herb, a Stone, a
+Bird, and a Fish so called._
+
+_Kynædius_ is an Herb, which is also {G}
+_Meretricis_, Whores Vervein; _centum capita_
+{G}, the hundred heads of _Venus_. _Kynædius_
+is a Bird, which is called _Iynx_, as
+_Kiranus_ says in the Verse of Theocritus; for
+Example's sake:
+
+{G}.  
+Per te, Iynx, meus ille domum vir quæso
+trahatur!  
+_Pray_ Iynx! _Fetch my Husband home again!_
+
+Some call it _Jugius Ales_. _Kynædius_ is a Fowl,
+and feeds like a Quail turning back its neck,
+as _Harpocration_ sayes. This has three Stones
+about its neck, it has a long tongue, and is
+often dedicated to _Venus_. _Kynædius_ a Sea-fish,
+is about fix fingers in greatness, it has a
+broad head like an _Uletinus_. It is a round
+Fish, of a translucid Body, so that its Backbone
+appears through its Body, as through
+a Glass; and it abounds in the Sea of _Syria_
+and _Palestine_, and of _Syria_ of _Lybia_. This
+therefore has two Stones, which also have
+their proper actions, as we shall mention
+hereafter. And they are in the head. And it
+has also another Stone in the third Joynt of
+the back towards the Tail, which is most
+powerful, and is requisite in the Spell or Ligature
+of {G}, i. e. _Venus_. The Stone
+_Kynædius_ was unknown, because it is exceeding
+scarce, and is called _Opisranus_ ({G})
+i. e. late or slow. For it is Saturnine. This
+Stone is double or twofold: One is obscure
+and black; the other is black indeed, but
+bright and shining like Glass. This is that
+which many seek, and do not know it: for
+it is the Dragon's stone. If therefore with a
+little of the Herb and Vulture's dung you
+make a Fume under a Peach-Tree, the Leaves
+will fall. _That a man's Member cannot be
+erect, till what is laid be removed_. And if one
+lay the Herb under the Pillow, he that lies
+upon it shall not erect, and if you give a little
+of the Herb powdered in drink to a
+Man, he will not erect to coition for seven
+dayes. _That a Cock way not tread an Hen_;
+Give it to a Cock in Bran or Paste, and he
+will not tread a Hen. _That a man for one
+day may be {G}, i. e. a _Fornicator_; That
+which is in the Fish _Kynædius_, in the third
+Joynt of the backbone, if you give it in
+meat or drink, a man will be a manifest Fornicator
+for one day. _To make a Cock tread a
+Cock_; If you give it to a Cock with Paste,
+he will get upon other Cocks, and upon any
+Male Animal. If therefore any thing take
+this Stone, it will get upon the like animal,
+as upon a Female. And the aforesaid stone
+does all these things. _To obtain favour and
+friendship; If anyone carry the Tongue of
+the Bird in a Plate of Gold, he shall have
+Favour, and be beloved of all. _To make
+Men soft_; if the ends of the wings, of the
+Flesh (I mean) not of the Feathers, be
+secretly given to a Man, or to any Male Animal,
+he will become soft, and do female
+works. _For Favour_; And if any one carry
+the right eye under an immaculate Saphire
+stone, whereon _Venus_ is engraven, he
+will be gracious and acceptable to all, and
+will overcome in every Consistory. And the
+left eye carried by a Woman, will do the
+same. _To make the Eyes bloodshot_; The Blood put
+in a plate for a _Collyrium_, and found, makes the
+eyes bloodshot. _For a Tertian and a Quartan
+Ague_; And the Heart tied about one, when
+the Moon is in the Wane, cures People of
+Tertian and Quartan Agues. _For an incurable
+Head-ach_; And the Brain of the Bird given
+secretly in Drink or Meat, eases an incurable
+Head-ach. _For Hepatick Persons_; And
+its Liver boyled with Salt and Water cures
+Hepatick Persons. _Of Goddess_ Venus _her Girdle_;
+The kind of _Venus_. The first and strong
+_Cestus_, i. e. Girdle, mollifies the hearts
+of Men, and of all Animals, and the Natures
+of the Males especially, so that the touching
+or carrying of this makes them soft and effeminate.
+Further also; Upon the Stone _Opfarius_
+engrave a Man having his Privities cut
+off, placed or lying at his Feet, and his hands
+contracted underneath; and himself reaching
+down to his Privities, and behind his back
+let there be Venus, having back to back, she
+turning her self, and seeing him. Enclose
+therefore the Stone of the Fish _Cynædius_. But
+if you have not one of them which are under
+the head, you must put underneath the
+Root of the Herb, and the end of the Bird's
+left wing. Enclose it in a large Gold Box,
+and you must put it into a thong of the nerve
+of a Hawk's Stomach, let it be thin, sewing
+it in the middle of the thong or nerve, that
+it do not appear. This is that which is painted
+in the head of _Venus_, comprehended in
+a thong or ligature, which is called _Cestus_.
+_That a male may not erect_; If any one touch
+a Male with the thong or ligature, he will
+not erect, and if he carries it unknowingly,
+he grows effeminate. And if he carry any of
+the Stone of the Fish, he will be altogether
+luxurious, not returning to his Nature. And
+if a Woman carry this ligature, none will carnally
+lie with her. For the Man cannot erect.
+And the measure of the ligature in respect of
+breadth, must be two fingers; of length, five
+palms. _Another Preparation of Venus_; There
+is also another Vessel or Preparation of _Venus_,
+which the Queens of Venus carry in pure
+Gold, and whoever else are able. These also
+must be in a ligature, which is made of a
+nerve in such a manner, as that the stones
+appear not, having a Sculpture, as is subjoyned.
+And the first must be (_Lapis Sulphureus_)
+_Lechnitis_ or _Kerannitis_ in the middle of the
+thong or ligature, having _Mars_ armed engraven.
+In this let there be Diamond stones
+sewed, having _Venus_ with a thorn about her
+feet. And again on the other side two immaculate
+winged Creatures, having _Venus_ tied
+by her hair to Love standing by. Again also
+other two stones on each side, and in like
+manner a _Sardinian_ engraven, having on each
+side a Sun drawn with four Colts, that is, a
+Coach, and a Moon with two Bulls, each stone
+having each: And other two stones on each
+side, having _Mercury_ engraven, with the rod
+of a Scepter in his right hand: And other
+two _Anankite_, i. e. true Unions or white Pearl,
+having on each side Erachmites, i. e. reins, the
+Goddess _Nemesis_ having her foot upon a
+wheel, and holding a Rod. And other two
+immaculate Pearls, being on each side not
+engraven, and put in the _Cesius_; so that in all
+there are thirteen Stones nxt in Golden Cases,
+and so sewed in a ligature, that they may
+not be seen by the Crowd. And there is a
+twofold holy ligature, and it follows: Another
+Stone may be carried, hung about the
+neck, which is called {G} i. e. Lunar
+Stone, in which the Encrease of the Moon
+and its Divinity appears. And let it have a
+Moon engraven, and underneath the Stone
+the Root of barren _Selinum_, that is,
+Parsly, in a Gold Case. And this is worn
+about the neck. _For wonderful and magnificent
+Acts_; This Mystery worn makes the wearer
+divine, and he is in veneration and adored
+by all. For many Kings carry it under-hand,
+or within their Crown, as a _Cestus_, so that
+it may be seen of none. And they say, that
+a _Selenites_ worn in a Ring does the same. But
+that we may not destroy our Boo , let this
+Discourse suffice, for it has great Virtues.
+Wherefore, my Son! I have expounded and
+written these things with great study and labour.
+And know this, that no one else has
+it. Wherefore give this Divine Mystery to no man.
+
