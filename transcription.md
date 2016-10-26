@@ -844,3 +844,402 @@ written these things with great study and labour.
 And know this, that no one else has
 it. Wherefore give this Divine Mystery to no man.
 
+
+LETTER XI. Λ.
+
+{G}, _the Frankincense tree. Lyngurius, a Stone. Lynx, a Vulture. {G} a Fish called Bass.
+
+Libanus is a shrubby tree, whole Gum
+fumigated raises divine Spirits. _Lingurius_ is a
+stone about the Hills _Lingui_, thence so
+called. But some say it is the Gum of the
+Poplar tree; however it is good. _Lynx_ is a
+Bird, which is called Gyps or a Vulture, a
+very strong Creature. _Labrax_ is a Sea-fish
+called a _Bass_, known to all. _Of these (???)
+Eye-Salve is made for all dimness of the Eyes
+so that in three days it makes the Sight sharp. It
+is good for the beginning of a Suffusion, a Cataract,
+turning back of the Eye-lid, Roughness
+dilatation of the Pupilla, Owl-fightednes, Watriness,
+itchng, Driness, falling away of the
+hairs of the Eye-lids, eating away of the Corners
+of the Eyes, and for many other Diseases. Anointing
+with it is excellent good for all these things._ And
+this is the Confection of it: Of _Olibannum_ ℥iv.
+_Lapis Lyngurius_ ℥ii. Vultures Gall ℥vi. liver
+of a Bass ℥iij. the best Honey ℥vj. When
+this is old, it is better. But _Kirani's_ Eye Salve
+was thus;  Of _Olibanum_ ℥vj. Gall of a
+_Bass_, Gall of a Vultur, each ℥vj. Prpper ℥iij.
+Honey without dross ℥iij. In the _[Lapis?]
+Lyngurius_ engrave a Vulture, and put underneath
+a little Frankincense, and the top of
+the Bird's Wings, and carry it: for it will be
+good for the Pin and Web in the Eyes.
+
+
+
+LETTER XII. M.
+
+{G}, _a Mulberry tree. Migrios, a Bird,
+Mydicus, a Stone. Mormyros, a Fish known
+to all._
+
+The _Mulberry tree_ is known to all. _Migrios_
+the Bird, is a Night-Raven, known to all.
+M;</;w,theStone,is dedicated to Vems.Mor-
+»'jros is a little edible Sea-fifh, like a Bafi.
+To make a Diarrhea and Evacuation 5 The
+Juice of the Root of the Mulberry-tree given
+fccretly in meat or drink, purges, and
+caufes a Diarrhea. And if-any one chew
+the inner Rind of the Root, and fwallow his
+Spittle, and fpit out the Subftance, that man
+will die of a Diarrhea. It is good for great
+ftin in the Teeth called Grinders, and in the
+Gums, and does not fuffer them to corrode, yea,
+it makes them that are corroded, fill without
+pm. Of the inner Rind \ij. of fharp Vinegar
+=xix. Bruife or fhred the Rind , boyl it
+half away ; wafh the Mouth with it morhing
+and evening. For Womens Flux of Blood from
+the Matrix or from the Arfe5 And we have
+difcourfed this by the divine power. Some
+therefore
+Bookl. HARPOCRATION. 47
+therefore of the boughs of the Mulberry tree
+are upright, others look down to the ground,
+and they have large Buds like an Egg. If any
+man then (hall (land upright on his feet,
+and (hall look towards the South-weft wind,
+and with two fingers of his left hand fhall
+raise the bud of the twig of a Branch that
+looks upward, extending and pulling it towards
+the Eaft. and fhall wrap it up in true
+Purplfe or Red, and tie it about, and fhall
+touch a Woman that is troubled with a flux
+of Blood from the Matrix or Arfe, the Flux
+will ftop in three days. For fuch of fpit
+Blood ; But if a man pluck a Bud that looks
+downward, as before was faid, i. e. ftanding,
+and fhall tie it up , he will ftop fpitting of
+Blood in three dayes. Thefe are the things
+they call Anacardia ; thofe indeed that look
+upwards cure inferior Fluxes insomany
+dayes, and thofe that look downward, cure
+the fuperior. And this is that for the Flux
+of Blood, which they call dva.ng.fMa, or xecnoUPpSia.
+For the EntericU, which are called
+Exophan<e, or t^o^dLhs, i. e. the Haemorrhoids.
+Indeed many falfe Sophifters arc miftaken.
+But for the Enterida, which are called H<emorrhoides
+and Exochades,a Medicine is made.
+It is o f the unripe Juice of the Mulberry 51'j.
+Chalcith ^ xij. Lapis Inclicus ^iv. The ends of
+feven Crows wings with a little Wine, mix it
+with 
+?8 K IRANI DBS and Book l Bookl. HARPOCRATION. 39
+with a Feather of the fame wings, till it h
+foft and tough like Glew. For the innei
+Hemorrhoids make Suppofitories or Clydcrs,
+and for the Exochades or outer , make inunctions.
+And in the Name of GO D ufe this
+Ligature. In a little Stone engrave the Fifh
+LETTER XIII. N .
+Nexu'/a , an Herb. Naucrates, a Fiji). N^a,
+Bird. Nemejiter, a Stone.
+N m /ia , is the herb Florinus, i. e. Taj/fii
+Mormjrits, and enclofe it in an Iron Box, and Barbatus or Mullein: There are feven forts of
+put under it a Bud of Mulberry-tree look
+ing upward, and carry it. It will be good for
+Hemorrhoids and the Arfe. For fpitting oj They burn the Leaves of this in Lamps for
+Blood, and Bleeding at the Nofe, and any Dif"" 1 Tr>
+~~
+ 1
+eafes above } A Purge also is prepared of the
+Root of the Mulberry-tree. O Mulberry-tree
+a potent Plant, not created for a few things
+this Herb. It differs therefore as much as the
+Leaves,which alcend a cubit above the Earth,
+For thy Juice mixt equally wifh the Juice For vtxvi fignifies dead. N?lwa,i. e. a Duck,is
+of the Root of the Herb Stratiotes of Perjia,
+Wieks. For they have them
+HavJiiati ( u e. in Necromancy J whic h is performed
+in a Shell, which they do to this
+day. Wherefore they call this herb Ntlyt,
+aBirdfwimming in Rivers, about the bignefs
+i. e. Savory, and in like manner the Juice olof a Hen. Nauxe^-ms is the Sea-filh e^w,
+Tithyraal and Scammony equally, mix them
+all equally, and boyl thrice as much Honey
+to the thicknefs of an Oyntment, and wher
+you have taken it off", put it up in a GlafSfooner be pluckt up by the roots. Forth
+Bottle, and give of it to one fading and that Gout 5 This whole Fifli boyled in Oyl , to
+keeps an exatt Diet. But if you give above the thicknefs of Wax, thtn the Oy l drained
+the bignefs of a Bean, he that takes it wil out, and boiled vo the thicknefs of a Plafter,
+be ftized with a Vomiting and Loofnefs, am this applied Plaftei wife curcs the Gout. NeOr
+Remora, i. e. Stop-drip; if this flick to a
+Ship under Sail, it will r.ot fuffer the Ship to
+ftir , it would b'reak fird, or a Tree might
+will not live a day. Give nothiug fuperfluou!
+in Meat or Drink, but give to every on<
+according to the ftrcngth of the Taker.
+LET\
+mefttes is a Stone from the Altar of Nemcjh,
+a Goddefs of the Athenians, It is an excellent
+ftone. Let Nemejis therefore b e engraven
+on that done , having one of her
+Feet upon a Wheel. Her Favour is like a
+Viijnns,
+1 
+40 IL41 1 KIRANIDES K A W 1 JJ ana and Boo Boo k I, k I, floOk L HARPOCRATION. 57
+Virgin's, holding in her left hand a Pirrhit,
+i.e. an Glne or Meafure, and in her right hand
+a Rod, and with one foot treading upon an
+Oxc. And enclofe under it the ftone Acronius,
+and a little of the Mulberry- tree. If there•
+fore you Jbew that Finger to one poffeffed , tht
+Devil will immediately confcfs himfelf and ht
+gone. It is good also for Phantafms,and Dreamt
+of Devib, and for Childrens Frights, and
+Nightly Fears. But the Wearer muft abftain
+from all polluted and unclean things. For this
+Ring king worn,fhews the quantity of the years of
+lift,and the quality of death,and the place. If you
+few a little of the bones of the fhort Fifh
+Rfmora in a Horfes Hide, and have it with
+you when you take fhipping, the Ship will
+not budge in the water at hoijiing Sail, unlefs
+what is put there be taken away, or you go
+out of the Ship. For the, fore-knowledge of
+Life and Death ; as I faid before, you muft
+ufe the prsguftation, or pixcognition of the
+Hawk.
+LETTER XIV. »
+3«pioy, an Herb. Xiphius, a Stone. Xiphiut,
+third. Siip/cw, a Fifh known to allt
+ called
+Spatha or Gladius.
+Xiphion, i.e. Gladiole, is an herb, which a
+bounds in all Lands ; it has Leaves like
+Corn
+Corn, but longer. It grows in plowed
+grounds with Corn , fome call it Machsra9
+i.e. a Knife Or Skien, others (pdayavov, a
+Sword. It attends upright from the ground
+06 one Arm j and it is but of one Branch. It
+Has a Gold coloured, purplifli, fweet-fented
+Flower. Shepherds make Garlands of it in
+the Spring time. Xiphias a kind of Sapphire,
+3 ftone known to all, this is as plentiful as
+Pebbles in every Land, it is of colour like
+to Calenos. in theRegion of Syria they ufe this
+at the burnt Sacrifice of four-footed Beafts.
+Xiphius, the Bird* is a kind of Hawk, which
+js called Kydos. Xiphias the Fifh is party-caloured,
+little and fmall like the liilis. The
+Flower therefore and Root of the Herb if a
+quantity be kept in a Jar or Hogfhead of Oyl,
+and continue there for fome time, when you
+take it out and put it up again, it •will be
+the Unguent, that is required in the Sacred
+Books, which in the Country of Melanitif is
+called Suftnum. About which the old Prophets
+are' miftaken. But in the Country of
+Syria the Plant is called Sufannum, and in
+Melanitis Sujinups. This Herb has two roots,
+one above and another below. If therefore
+you give the upper Root to any one niixt in lViney
+to drink, he will ere ft : But ef any one drink.the
+tower, it will do the contrary , and he will be
+without feed. In the Stone therefore engrave
+E a Hawk, 
+43 IK1RANIDES and Book f,
+a Hawk , and under its feet aFifh, and enclofe
+the Hoot of the Herb under the Stone,
+and keep it. This Ring is cBaft, andsoit
+he that wears it. If therefore you have it
+about you, in the Oracle you will lie, what
+you have a mind to. And if you put it up
+on any Animal, or upon any framed Idol, it
+will give you an Oracle concerning all that,
+which you have a mind to know. And the
+Head of the Fifli put into a fuffumigation
+with Myrrh, makes them that fmell it feem
+as if they were poflefled with the Devil. But
+do you anoynt your Nofe with ftrong Oynt
+ment, and you will no way be enraged or
+mad.
+LETTER XV. O.
+'Oeoflopjis, an Herb. "Opn/£, a Bird. Orphos
+a Fiji). " 'Oiv^jnis, a Stone known to all.
+Onotbyrk or Onothyrfts is an Herb, fome
+call it 'Ovoj{g.hcL'^i% i. e. Afles Mallow, this is a
+Role, of which they make Garlands 5 It has
+Leaves like domeftick Mallow. This by the
+Greeks is called «*9i . e. MafoavjfcvsMaifa
+MaI|ow.Or/yx,a Quail,is a Bird known to all,
+yet its Nature is not ealily known 5 for there
+is one thing concerning this, unknown. For
+when there are great Storms upon the Coafts oj
+Lybia deferta, the Sea cafis up great Tunnies
+upon the fl)ore, and thefe breed Worms for four
+teen
+Book I. HARPOCRATION. 43
+teen dayes, and grow to be as big as Flits, iki
+at Locufis , which being. augmented in lignt-.
+become Birds, called Quails. After ihh lit
+South or South'wefi Wind blowing jlrong, fhtj
+pafs the Seas into Pamphylia or CiliciawJIreland,
+and confidently, the North-wind blm%
+they go to the Sea-coaflsof tlx Country of Syria
+and the other parts of the Land of Melanitis,
+But abominable falfe Sophijlers say, ikj m
+chaji, whereas they know not the Njlm
+of them. Orphos is an edible Sea-fifh, much
+like a Tench. Onychites is a Sardonjx. ftone
+known to all. The Root therefore of the
+Herb boyled with Oyl and the Fat of a Quail,
+and then a little Wax added, is goodforhmnefs
+of the Matrix, and Swellings, and Vlctn,
+and Itchings, and all other Womens Diftujei ii
+the Matrix. And it is put into Medicines fo
+the Kidneys. And it i9.good for Glmnu,
+i. e. the Kings Evil. The Eyes ofQuail,
+with the Root of the Herb hung about on
+diminilh a Quotidian and Quartan cold Fii
+in the wain of the Moon. For lliufm} Diffolve
+the Eyes of the Quail or of the Se?
+; Tench wUh a little, water in a Glafs-Velit
+for feven dayes, (hen add a little Oyl : Put
+a little of this in the Candle, or only anoint;
+Rag, and light it among the Comftony, anil
+they will look upon themfclves like Devil s or,
+fire,sothat every one will run his way,
+E 3 tfct 
+44 KIR A N.I'D BS and Bookl
+the Sardonyx Stone engrave a Quail, and under
+its Feet a Sea-Tenon,and put a little of the
+forefaid Confeftion under the Stone in the
+hollow of the King. And when you are willing
+not to be feen, anoint your Face all over
+with the forefaid Confe&ion, and wear the
+Ring, and no Man (hall fee you, if you do
+any thing in the Houfe; no, not if you(hould
+take any thing away that is in the Houfe.
+LETTER XVI. n.
+notoJjpw?, fome call it ^etpcti^Aor, Knot-grafs.
+Porphyrin, a pluvial Bird, or Plover, which aUmt
+in Rivers. Poapvpa, a fea Jhell-fifl), the
+Purple: feme call it Scolecium, like to a Wilk.
+Porphjrivt, the Porphyry-ftone, weUkjtown in the
+Country of Melanitis.
+This Root therefore taken up in the Wane
+of the Moon, and carried about one, differs
+rot the Eyessobe weak. And its Juice prepared,
+as we fhall fet down hereafter, is good
+tor many Difeafes in the Eyes. For the Eyes of
+MM are fnbjeS to\ and tormented with many
+Difeafes. And that I may not depart from
+what I say, but make good my word: In the
+Ejt-lids there happen Itching,Nits, Lice, falling
+of the Hair, entangling of the Hair, Baldnefs,
+Gniido, Hordeolum, Warts, Purblindnefs, thick-
+*tft of the Eye-lids, here are eleven. About
+the
+Book! . HARPOCtLATION. 4$
+the &haw)viov, or skiti of the Eye-lids, Rough- *
+ttefs, Watrinefr>, Ulcers, Hairinefs, here* are four.
+About the Corners, fcabbinefs, dryntfi, Agethinos,
+Aduflion, cvyAwTiia, cu^Aa)-^, ferix, fretting,
+eating away, here are nine. About the Ball
+of the Eye, Pterygium, Albula, p>j£it, /uu>ox.i<pa.-
+ftzauAufia,; aJuaAw^, srpetyyos,
+uva visits, here are nine. About the Pupil,
+or Sights there are nebula or nubes, hebetatio,
+latitudo pupillt, effufio, effeftio, defeffio,
+atrophia, or <pdi<ns, glaucedo, (JJU^Q^OLOK, g^ins
+pupill<e, oimmov, metalopa,myops, obfeuratio,here
+are twelve. In the whole fubflance of the Ere,
+there are (pAe^ffc, (plfw™* WW™"* COff*buJtio,
+fuffufio, apoflema, comeftio, ulcus, circumdolor,
+pjydrakium, here are ten. And there are feveral
+forts of Rheums,lene, Adfyov, fubitum, caliduns,
+dulce, frigidum, tepidum, tenue, acre, antiquum
+& arenofum., ,aluminofum, here are eleven
+Rheums , and in all fifty five Difeafes.
+And this is the Preparation of the Confe&ion
+for all the forefaid Difeafes: Juice of the Herb
+fvj . Licium Indicum^vy Myrrh, Saffron, Frankincenfe,
+Opium, each jvij. black Acacia fxij.
+Rain-water fv . Beat them up together, and
+keep it in a Glafs Veflel. But it is better to
+put in Wine for Water. This is a moft precious
+thing for the Rheum, and for all Difeafes of
+the Eyes, and Dimnefs $ for it flops every Rheum.
+Moreover anointing with it in the Bathe, and
+E 3 • wafting 
+46 KIRANIDES <and Bookl..
+' " off* »
+ a great help for all paint. For
+the Memitrania. And the raw Flcfli of the
+PurpJe-fifh, applied Plaftcr-wifc to the Foreh
+wd affwages the Hemicrania. And in the
+Forphyrv-ftone engrave the Bird, and under
+Its tcet Kmfyum, or the Purp/c-fift, and put
+under the Stone the end of the Birds Wine*
+and enclofe it, and wear it againfi every Headach,
+and every Hemicrania. And it is also good
+for Rheumarick Eyes. In the Wain of the
+Moon make the Ring, And the Eye-falve.
+LETTER XVIf. P .
+'Pa^©., a PJant. Romphea, the Bird VUKTte«,
+an Owl with long Ears well ktiown to all
+'Pa<pk, a Sea fifi, having as it were a Needle in
+its Mouth. a parti coloured (lone, a
+tor»cdfojK,ff&ee*daftle Riwoccros Nofe.
+For it is hie a Horn.
+If therefore you put a Branch of the Plant
+in the Houle, all Devils will fly away. And
+the Juice of the Plant, and the Fruit with
+Honey, applied to the Eye, fharpens ike fight.
+And if it be applied alone, it tafa out white
+Specks in the Eye. But boyl it to a. Thicknefs.
+And the Blood of the Owl, if you anoint with
+it, and the Juice of ihe Herb, and Honey, will
+Jharpen the fight, and take away a fuffufion. And
+let an Owl be engraven in the Stone, and at
+i ts
+Bookl. HARPOCRATION. 47
+its Feet the Needle-fifh, and under the Stone
+put the Roo t of the Herb. He that carriii
+this (hall put Devils to flight. And if you lay
+it under the Head of any one that knows it
+pot, he will net Jleep. In like wanner also, If
+you cut off the Head of a living Owl, and tie
+it in a black Skin, and apply it to any ones
+left Arm, he will not fleep, till it be taken
+from him. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
