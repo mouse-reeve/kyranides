@@ -1063,7 +1063,7 @@ of the Matrix, and Swellings, and Ulcers,
 and Itchings, and all other Womens Diseases in
 the_ Matrix. And it is put into Medicines for
 the Kidneys. And it is good for _Cheironia,
-i. e._ the King's Evil. The Eyes of a Quail,
+i. e._ the King's Evil_. The Eyes of a Quail,
 with the Root of the Herb hung about one
 diminish a Quotidian and Quartan cold Fire
 in the wain of the Moon. _For Illusion;_ Dissolve
@@ -1088,101 +1088,130 @@ take any thing away that is in the House.
 
 LETTER XVI. Π.
 
-notoJjpw?, fome call it ^etpcti^Aor, Knot-grafs.
-Porphyrin, a pluvial Bird, or Plover, which aUmt
-in Rivers. Poapvpa, a fea Jhell-fifl), the
-Purple: feme call it Scolecium, like to a Wilk.
-Porphjrivt, the Porphyry-ftone, weUkjtown in the
-Country of Melanitis.
+_{G}, some call it {G}, Knot-grass.
+Porphyrius, a pluvial Bird, or Pluver, which abounds
+in Rivers. {G}, a sea shell-fish, the
+Purple: some call it Scolecium, like to a Wilk.
+Porphyrius, the Porphyry-stone, well known in the
+Country of_ Melanitis.
+
 This Root therefore taken up in the Wane
-of the Moon, and carried about one, differs
-rot the Eyessobe weak. And its Juice prepared,
-as we fhall fet down hereafter, is good
-tor many Difeafes in the Eyes. For the Eyes of
-MM are fnbjeS to\ and tormented with many
-Difeafes. And that I may not depart from
-what I say, but make good my word: In the
-Ejt-lids there happen Itching,Nits, Lice, falling
-of the Hair, entangling of the Hair, Baldnefs,
-Gniido, Hordeolum, Warts, Purblindnefs, thick-
-*tft of the Eye-lids, here are eleven. About
-the
-Book! . HARPOCtLATION. 4$
-the &haw)viov, or skiti of the Eye-lids, Rough- *
-ttefs, Watrinefr>, Ulcers, Hairinefs, here* are four.
-About the Corners, fcabbinefs, dryntfi, Agethinos,
-Aduflion, cvyAwTiia, cu^Aa)-^, ferix, fretting,
-eating away, here are nine. About the Ball
-of the Eye, Pterygium, Albula, p>j£it, /uu>ox.i<pa.-
-ftzauAufia,; aJuaAw^, srpetyyos,
-uva visits, here are nine. About the Pupil,
-or Sights there are nebula or nubes, hebetatio,
-latitudo pupillt, effufio, effeftio, defeffio,
-atrophia, or <pdi<ns, glaucedo, (JJU^Q^OLOK, g^ins
-pupill<e, oimmov, metalopa,myops, obfeuratio,here
-are twelve. In the whole fubflance of the Ere,
-there are (pAe^ffc, (plfw™* WW™"* COff*buJtio,
-fuffufio, apoflema, comeftio, ulcus, circumdolor,
-pjydrakium, here are ten. And there are feveral
-forts of Rheums,lene, Adfyov, fubitum, caliduns,
+of the Moon, and carried about one, suffers
+not the Eyes to be weak. And its Juice prepared,
+as we shall set down hereafter, is good
+for many Diseases in the Eyes. _For the Eyes of
+Men are subject to and tormented with many
+Diseases._ And that I may not depart from
+what I say, but make good my word: _In the
+Eye-lids_ there happen _Itching, Nits, Lice, falling
+of the Hair, entangling of the Hair, Baldness,
+Grando, Hordeolum, Warts, Purblindness, thickness
+of the Eye-lids, here_ are eleven. About
+the {G}, _or skin of the Eye-lids, Roughness,
+Watriness, Ulcers, Hairiness,_ here are four.
+About the Corners, _scabbiness, dryness, Agethinos,
+Adustion, {G}, serix, fretting,
+eating away,_ here are nine. _About the Ball
+of the Eye, Pterygium, Albula, {G}, {G}, {G};
+{G}, {G},
+uva visus,_ here are nine. About _the Pupil,
+or Sight, there are nebula or nubes, hebetatio,
+latitudo pupille, effusio, effectio, defectio,
+atrophia,_ or _{G}, glaucedo, {G}, geminæ
+pupillæ, {G}, metalopa, myops, obscuratio,_ here
+are twelve. In the whole substance of the Eye,
+there are {G}, {G}, {G}, combustio,
+suffusio, apostema, comestio, ulcus, circumdolor,
+psydrakium,_ here are ten. And there are several
+sorts of _Rheums,lene, {A}, subitum, calidum,
 dulce, frigidum, tepidum, tenue, acre, antiquum
-& arenofum., ,aluminofum, here are eleven
-Rheums , and in all fifty five Difeafes.
-And this is the Preparation of the Confe&ion
-for all the forefaid Difeafes: Juice of the Herb
-fvj . Licium Indicum^vy Myrrh, Saffron, Frankincenfe,
-Opium, each jvij. black Acacia fxij.
-Rain-water fv . Beat them up together, and
-keep it in a Glafs Veflel. But it is better to
-put in Wine for Water. This is a moft precious
-thing for the Rheum, and for all Difeafes of
-the Eyes, and Dimnefs $ for it flops every Rheum.
+& arenosum, aluminosum,_ here are eleven
+Rheums, and in all fifty five Diseases.
+And this is the Preparation of the Confection
+for all the foresaid Diseases: Juice of the Herb
+℥vj. _Licium Indicum_ ℥vj. Myrrh, Saffron, Frankincense,
+_Opium_, each ℥vij. black Acacia ℥xij.
+Rain-water ℥v. Beat them up together, and
+keep it in a Glass Vessel. But it is better to
+put in Wine for Water. _This is a most precious
+thing for the Rheum, and for all Diseases of
+the Eyes, and Dimness; for it stops every Rheum.
 Moreover anointing with it in the Bathe, and
-E 3 • wafting 
-46 KIRANIDES <and Bookl..
-' " off* »
- a great help for all paint. For
-the Memitrania. And the raw Flcfli of the
-PurpJe-fifh, applied Plaftcr-wifc to the Foreh
-wd affwages the Hemicrania. And in the
-Forphyrv-ftone engrave the Bird, and under
-Its tcet Kmfyum, or the Purp/c-fift, and put
-under the Stone the end of the Birds Wine*
-and enclofe it, and wear it againfi every Headach,
-and every Hemicrania. And it is also good
+washing it off, is a great help for all pains._ _For
+the Hemicrania_. And the raw Flesh of the
+Purple-fish, applied Plaster-wise to the Forehead
+asswages the _Hemicrania_. And in the
+Porphyry-stone engrave the Bird, and under
+its feet _Kirikium_, or the Purple-fish, and put
+under the Stone the end of the Birds Wings,
+and enclose it, and wear it _against every Headach,
+and every Hemicrania._ And it is also good
 for Rheumarick Eyes. In the Wain of the
-Moon make the Ring, And the Eye-falve.
-LETTER XVIf. P .
-'Pa^©., a PJant. Romphea, the Bird VUKTte«,
-an Owl with long Ears well ktiown to all
-'Pa<pk, a Sea fifi, having as it were a Needle in
-its Mouth. a parti coloured (lone, a
-tor»cdfojK,ff&ee*daftle Riwoccros Nofe.
-For it is hie a Horn.
+Moon make the Ring, And the Eye-salve._
+
+
+
+LETTER XVII. P.
+
+_{G}, a Plant. Romphea, the Bird {G},
+an Owl with long Ears well known to all.
+{G}, a Sea fish, having as it were a Needle in
+its Mouth. {G}, a parti coloured stone, a
+horned stone of the end of the Rhinoceros Nose.
+For it is like a Horn._
+
 If therefore you put a Branch of the Plant
-in the Houle, all Devils will fly away. And
+in the House, all Devils will fly away. And
 the Juice of the Plant, and the Fruit with
-Honey, applied to the Eye, fharpens ike fight.
-And if it be applied alone, it tafa out white
-Specks in the Eye. But boyl it to a. Thicknefs.
+Honey, applied to the Eye, _sharpens the sight_.
+And if it be applied alone, _it takes out white
+Specks in the Eye._ But boyl it to a. Thickness.
 And the Blood of the Owl, if you anoint with
-it, and the Juice of ihe Herb, and Honey, will
-Jharpen the fight, and take away a fuffufion. And
+it, and the Juice of the Herb, and Honey, will
+sharpen the sight, and take away a suffusion. And
 let an Owl be engraven in the Stone, and at
-i ts
-Bookl. HARPOCRATION. 47
-its Feet the Needle-fifh, and under the Stone
-put the Roo t of the Herb. He that carriii
-this (hall put Devils to flight. And if you lay
+its Feet the Needle-fish, and under the Stone
+put the Root of the Herb. _He that carries
+this shall put Devils to flight._ And if you lay
 it under the Head of any one that knows it
-pot, he will net Jleep. In like wanner also, If
+not, he will not sleep. In like manner also, if
 you cut off the Head of a living Owl, and tie
 it in a black Skin, and apply it to any ones
-left Arm, he will not fleep, till it be taken
-from him. 
+left Arm, he will not sleep, till it be taken
+from him.
 
 
 
+LETTER XVIII. Σ.
+
+_{G}, an Herb. {G}, a Bird,
+Struthiogambarum, an Estrich. {G} a Fish,
+a Sea-Cow. Saphirus, a Saphire-stone._
+
+_Satyrion_ is an Herb like _Spinosa_, and it starts
+up with its whole Stalk from the Ground; it
+is two Palms in heighth, full of Seed: It and
+the Seed have a watrish pale Colour. The
+Estrich is a known Bird. The Sea-Cow is an
+edible Fish, well coloured and known. The
+immaculate Saphire is dedicated to _Venus_.
+Therefore the Preparation of the Herb is in
+this manner; _For spent and barren Women, and
+for Coition, and for such as have a watry and thin
+seed, and which cannot conceive, and such as
+are withered and dry: For this is arid and delectable,
+and gives Conception._ If before Coition,
+you strew it on the virile Member, anointed
+with Honey, the Woman will be debilitated
+beyond measure. And if the Woman be so anointed,
+the Intenseness of the Act will be great: For it dries up Nature, and causes Conception, and makes barren women conceive. And it is prepared thus: of _Satyrion_ Seed ℥ij.
+and Seef of Pepper ℥j. _Alumen scissile_ ℥j. (_but according to another_ Book) ℥ij. _Stypleria rotunda, i. e._ common Allum ℥ij. _Aromate aridis_ ℥ij. Lay it up in a Vessel, and communicate it to no man. The Preparation, or Confection of _Aromate aridis_ is thus, _Costue_ ℥ij. Spikenard ℥β. (_in another Book_, ℥ij.) _Carpoblasamum_ ℥ iij. _Amomum_ ℥β. (in another place ℥v.) _Cloves_ ℥ij. _Cassia_ ℥ij. _Storax_ ℥v. _Opabalsamum_ ℥j. Roses exunglated ℥iiij. Musk ℈β.
+Powder the dry things very finely, and sift them well. Then rub the _Storax_ a long time apart, and hten with the beaten Roses and Balsam, and all mixt together, make Trochises: Afterwards suffumigate them, and dry them in a ???, _thyinum_ of Tree-Moss and _Storax_, and Mastich (?), and Quails Claws, and _Costus_, which being dried, put them up in a Glass Vessel, and when you have occasion for Conception, powder to Trochises. And this is _Confectio aromatic sicia(?)_. And the Bird Estrich has an _Echidirum_, which is called _suffivium aridum_, the inner Skin of the Gizzard: This powdered, and given in Drink secretly, _procures Love and Luxury_. And the Stone of the _Echinus_, i. e. of the Gizzard of an Estrich, with one Grain of _Satryion_,
+powdered and given in Meat or rink secretly, _procures great Intenseness to them especially, who are impotent in Coition._ And the stone it self, only hung about the Neck, _causes good Digestion, and Intenseness in Coition_. And the Stone of the right Temple of the Sea-Cow, carried about one, causes Intenseness, or Erection. And the left Stone does the contrary. And the Fat of the Fish causes great Delights, beaten up, or dissolved with Honey, and anointed on both Genitals. Engrave therefore upon a Saphire-stone an Estrich holding a Sea-Cow in its Mouth, and put underneath a grain of _Satyrium_ and a little of the Stone, which is in the _Echinus_ or Gizzard of the same Bird, and enclosing it, wear it, _against all indigestion and for Tension and Love. For it is very good for those that desire to use much Coition, and for old Men. And it makes him that wears it, gracious._
+
+
+
+LETTER XIX. Τ.
 
 
 
