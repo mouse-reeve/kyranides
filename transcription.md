@@ -1205,6 +1205,216 @@ powdered and given in Meat or rink secretly, _procures great Intenseness to them
 
 ## LETTER XIX. Τ.
 
+_Trifolium, Trefoil, a known Herb. {G},
+the Peacock, a delectable and acceptable Bird,
+which all do know. {G}, a Turtle, a Sea-fish
+known to all, whose good and bad is known.
+Taïtis, a Stone as beautiful as a Peacock, and
+like one._
+
+Engrave therefore in the Stone a Peacock,
+holing a Sea-Turtle, and under the Stone
+the Peacock's Voyce, _ajo_, and put the Roots
+underneath. _For this carried about one is a
+great Miracle for Victory and Peace, and Stability,
+and all Gains; so that the very Divinity
+rejoyces in it. And it shews in Sleep whatever
+you would._ For if you place it under your
+Head, in great rest, you shall see in a Dream
+what you have a mind to. And give this
+Ring to no other body. For such another
+is not found. And by the Stone that is in
+the Head of a Peacock, given in Drink with
+your own Sweat, you may obtain any Virgin
+which you have a mind to. 
+
+
+## LETTER XX. Υ.
+
+_{G}, is an Herb stupednously good; some
+call it Dionysiaca,_ i. e. Bacchus _and_ Jove
+_their Herb, {G}, it is a Summer
+Plant._ Yperionis avis _is the Female Eagle,
+like to the Male Eagle. {G}, a Sea-fish not
+edible. Yenos, a Stone which is found in Rivers,
+it is a Stone having a very bloody Colour._
+
+Engrave therefore in the Stone an Eagle
+tearing the Fish, and under the Stone put a
+Root of the Herb, and the end of a Feather
+of the Eagle's Wing, and if you
+have it not, put in a Hawk's Feather,
+and enclosing it, you will have a great
+Phylactery _for all Fits of the Mother and
+Swimmings in the Head, and Flux of Blood,
+and further for all Diseases onthe Mother, excerpt
+the falling down of the Womb._ Give
+it therefore to Women Patients as a great Mystery.
+
+
+
+## LETTER XXI. Φ.
+
+_{G} is an Herb, which is called {G},
+i. e. Rana, an evil Plant. The forms of it is as
+opium raninum: And it grows in Waters, being
+of a burning quality. {G} is a Bird; it is
+of the bigness of a Sparrow. {G}, a Seal or Sea-Calf,_
+viz. _an excellent Sea-Animal having
+hands like a Man, a Face like a Calf or a Cow.
+{G}, some call it {G}, a Toad-stone._
+
+The Virtue of the Herb therefore is strong
+as Iron, _viz. it breaks Apostemes, Kernels,
+Glands, and all things that are purulent._ And
+you shall cause a Plaster or Oyntment to be
+laid on but for three hours, then take it away,
+and you will find the Body marked
+and hurt: But in the hard Bodies you may let
+it lie on longer. And after incision use those
+things, which cleanse and draw, and then
+Healers. And thïs is the Rosary. Of the
+Herb _Batrachia_ ℥iv. Arsenick ℥iv. _Chalcitis_
+℥iv. _Lathyridon_ ℥iv. the Breasts of _Cantharides_,
+throwing away the ings and legs ℥vj.
+quick Lime ℥j. (in another place ℥viij.) Oyl
+of Cedar, or Roses, or _Costus_ what is sufficient;
+French Soap ℥iv. Beat them together
+carefully, and make a Plaster, and lay it up
+in a Glass Vessel. Use it, and take care you
+lay it not upon a Nerve or Muscle, and make
+a Convulsion. And it is good also for an
+_Ægilops_ and _Trichiasis_, applied after they appear
+to be rosen. The hairs also of a Seal
+which are found between its Nose and its
+Mouth, the greater and harsher of them
+pluckt, with the middle of a Seal's Heart
+and the Heart of a Houp, and a little of the
+Liver of a Seal, and some _Chrysanthemum_ or
+_Stoechas_ or herb _Plumeria_, of Ants herb, and
+_lynx_, of the Tongue of an Estrich, and a little
+Musk in Deer's Skin, and tie up the right
+Eye of a Wolf; and keep it for a great Phylactery
+_for all Friendship, and obtaining of Victory.
+For it dissolves all Enmity, and confers
+Friendship, it also delivers from all necessity and
+difficulty of Times, and from danger, and from
+all tempests and waves of the Sea, and from
+wild Beasts, and from Pirate and Thieves by
+Sea or Land, and from Devils and Sickness
+for it affords health, and good acts, and good
+works, opportunity, and abundance of all good
+things, and truly it is the great Protection of
+GOD,_ especially if it have the Root or
+Fruit of Pæony init. And the Nails of a
+Seal's hands, carried about one or worn, frustrate
+all Treacheries and Fascinations. Therefore
+it will not be inconvenient neither, to
+put a Nail of the right hand into this Phylactery.
+And the Hairs of a Seal put into an
+Unguent, and tied about one in a Girdle,
+cures _all pain of the Loyns and Kidneys._ Being
+put also in the Shooes they cure _the
+Gout and Bloody Flux._ And likewise the
+Fat of a Seal, mixt with Oyntment of Roses,
+is good _for Gouty persons._ And if one tie the
+Heart of it to the Mast of a Ship, _the Ship will
+never suffer Shipwrack._ And if you hang its
+Skin at the Sayl-yard or at the Mast of a
+Ship, _it will not be struck by Thunder._ And
+the Bird eaten cures Icterick Persons. And
+its Claws hung about one _cures the cold Fit
+of a Quotidian, Tertian and Quartan Ague._
+And its Heart tied in a Cloth, and worn upon
+the Arms, _puts off a Tertian, and Quartan,
+and an {G}._ In a Toadstone therefore
+engrave a Hawk and at its feet the
+Frog-Fish, and enclose the Tongue of a Frog,
+and the root of the Herb, and the end of
+the Tongue of the Bird, and give it
+to whom you please to carry. _For it
+stops all Fluxes of Blood, and cures the Jaundice.
+It is also for such as spit blood, and
+for the Flux of Women, and is good for the ???
+of Fury above the Anger of ones Enemies,_ especially
+if the hairs of a Seal be enclosed in
+it. _It preserves also from venomous Stings._ And
+it has other Acts also, which I shall relate.
+Take the Stone, which is called _Hieracite_
+and engrave in it a Hawk, and at his feet a
+Frog, and under foot engrave this _M l â a â_
+which is _Malae_. In another Book it is found
+thus; _Mer Gys Rai maa ovaa._ And in a living
+Loadstone make this Sculpture, _a a m a a G y n a_:
+But other have it thus _M a a a a_.
+And take a common Hawk, which we call
+_Circus_, or a Falcon, kill it in Spring-water
+by dipping it under water so often till it dies.
+Take it therefore, and preserve it in Myr???
+for seven days, as in Salt. And after seven
+dayes, tie the Tongue of a living Frog, and two
+stones, _scil_, a _Hieracties_ and a Magnet, and
+little filings of Steel, that the Magnet, may
+live, tie them in a Hawk's Skin: And make
+the Ligature of the Phylactery of the nerve
+of the Hawk, as round (or twisted) Co???
+small and long, that being worn about the
+Neck, it may reach to the Stomach and Heart
+and _you will foreknow all things_. But neither
+tell, nor teach this to thy own Son. _This
+the Apozeme or Cup of the Phylactery_. Take a
+new Flagon or Dish, in which the foresaid
+Water where the Bird was killed is, and take
+of that Water ℥ij. and of Honey ℥j. and of
+Rosemary root ℥ij. and of Barley first infused
+in Rain-water till it sprout, so that indeed
+the Grain does just appear, xxviij
+Corns, and of the Herb _Batrachia_ ℥iv. Frankincense ℥iv.
+of the Herb _Chamæleon_ iiij Seeds,
+which are called _C?idius Coccus_. Bruise them,
+and boyl then with _Hydromel_, till it grow as
+thick as an Electuary, and put it up in a
+Glass Vessel, and keep it covered. But when
+you put this up, put into it the heart of a
+Houp, and its Blood; and again upon this,
+swallow another heart of a Houp, and _Hydromel_
+after it, and a little of the Composition,
+_and you will be perfect all the time of your Life._
+And it is good, if you dip the foresaid Stones
+in the same Composition, and so you will provide
+for your self when you want any thing,
+or you shall keep a Ring so, and you will be
+perfect. _When therefore you would foreknow, or
+know, whatever is done in the World, or in thy
+own House, or in another House, concerning a
+Man or a Woman, or a Thief;_ taste first with
+one finger of the Composition, and drink devoutly,
+and afterwards _Hydromel_, and carry
+the foresaid Phylactery about your neck, so
+that it may reach your Heart and Stomach,
+and you will be a Fore-knower of all things.
+Whatever you have a mind to know concerning
+the life of a Man or Woman, their Actions
+and Generations, and Lots of Fortunes,
+and concerning Thieves and Fugitives, where
+and how they are; as a wise Man you shall
+have Science of, and know, and discern every
+thing.
+
+
+
+## LETTER XXII. X.
+
+{G}, i. e. _Golden-Flour, us an Herb
+known to all. {}, a Golden-wing, is a
+Bird of the bigness of a Quail. {G} (or
+rather {G}) an edible Sea-fish known to all,
+a Guilt-head, {G}, a speckled Stone, and as
+it were Golden._
+
+
+
+
 
 
 
