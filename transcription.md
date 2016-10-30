@@ -6,7 +6,7 @@ HARPOCRATION.
 BOOK I.
 ---
 
-Letter I. A.
+## LETTER I. A.
 
 {G} the white Vine. {G}, the Eagle, a Bird. {G}, the Eagle-stone.
 {G}, the Eagle, a Fish without Scales.
@@ -192,8 +192,7 @@ Heaven, and Air, and dissolving all Power! O Grape bearing Drink! maist thou loo
 Mouth, and put them in a course Cloth, and hang them about your Neck, and it will cause Health. And the Stone that is in the Head of the Fish, hung about the Neck, takes away a Quartane. Therefore take the Eagle-Stone, and engrave also an Eagle upon it, and under the Stone put the Kernels of the Grape, and the top of the Feathers of an Eagles wing; and if you have not an Eagle, of an Hawks, and enclosing it, wear it. For it will preserve you from all the foresaid Occasions of Evil: Moreover it will give you power to speak, and to have friendly conferences with Great Men; and it is good for many other things; all which I will not declare.
 
 
-
-LETTER II. Γ.
+## LETTER II. Γ.
 
 {G} is a Bird which is called {G} i. e. _a Crow_, a common Animal, and known to all People, living to five hundred years of age. {G} is a precious Stone, a Beril which is called {G} i. e. _All Life_. {G} is a _Sea-Lobster_, so called from its likeness to {G}, i. e. red Tiles. {G}, i. e. The Herb Sevine, known to all People.
 
@@ -201,7 +200,7 @@ _For Dyspnoïck (?), Orthopnoïck and Asthmatic Persons:_ Make this Electuary; O
 
 
 
-Letter III. Γ.
+## LETTER III. Γ.
 
 {G}, _the Herb Pæony_. {G} a sort of Owl. {G}, a Stone. {G} a Sea-fish known to all men.
 
@@ -211,7 +210,7 @@ be danger in the Pains of Birth, bruise the open Seed, and make it up with Oyl, 
 
 
 
-Letter IV. Δ.
+## LETTER IV. δ.
 
 _Draconthea, the Herb Dragons_. {G}, _the Bird Woodpecker_. _Draco, a Fish_. _Dendritis, a Tree stone_.
 
@@ -293,7 +292,7 @@ all Men.
 
 
 
-LETTER V. E.
+## LETTER V. E.
 
 {G}, _the Herb Rocket. Enlui, aëdon,
 a Nightingale. {G}, a Sea-Urchin. Enanthus, A Stone._
@@ -345,7 +344,7 @@ eloquent; and not only to Men, but Devils
 and wild Beasts will fly from you.
 
 
-LETTER VI. Z.
+## LETTER VI. Z.
 {G}, _the Herb Bindweed. Zaukos, a Bird.
 Zmirena, a Sea-fish. Smaragdus, an Emerauld._
 
@@ -390,7 +389,7 @@ it is better, if the Fat of the Sea-Lamprey be
 put underneath: For this is Divine.
 
 
-LETTER VII. H.
+## LETTER VII. H.
 {G}, the Herb we call _Fryngo_. {G},
 ??? _the Sun-Bird, or {G}, i. e having J??let
 Wings. {G}, S. emagines, Vulcane's Stone
@@ -601,7 +600,7 @@ Kirani _is perfect_.
 
 
 
-LETTER VIII. Θ.
+## LETTER VIII. Θ.
 
 {G}, _Herba Dionysi, Ivy. Thyr, a Bird. Thyrsites a Stone. {G} a Fish_.
 
@@ -641,7 +640,7 @@ of _Bacchus_. For so sayes _Harpocration_.
 
 
 
-LETTER IX. I.
+## LETTER IX. I.
 
 {G}, i.e. a Willow, a fruitless Tree, j]{G},
 A Jasper Stone, green. {G}, a Kite, a Bird.
@@ -669,7 +668,7 @@ in the Breast.
 
 
 
-LETTER X. K.
+## LETTER X. K.
 
 {G}, {G}, _an Herb, a Stone, a
 Bird, and a Fish so called._
@@ -845,7 +844,7 @@ And know this, that no one else has
 it. Wherefore give this Divine Mystery to no man.
 
 
-LETTER XI. Λ.
+## LETTER XI. Λ.
 
 {G}, _the Frankincense tree. Lyngurius, a Stone. Lynx, a Vulture. {G} a Fish called Bass.
 
@@ -880,7 +879,7 @@ good for the Pin and Web in the Eyes.
 
 
 
-LETTER XII. M.
+## LETTER XII. M.
 
 {G}, _a Mulberry tree. Migrios, a Bird,
 Mydicus, a Stone. Mormyros, a Fish known
@@ -945,7 +944,7 @@ _Mormyrus_, and enclose it in an Iron Box, and put under it a Bud of Mulberry-tr
 
 
 
-LETTER XIII. N.
+## LETTER XIII. N.
 
 {G}, _an Herb. Nancrates, a Fish. {G},
 Bird. Nemesites, a Stone._
@@ -967,16 +966,15 @@ what is put there be taken away, or you go
 out of the Ship. _For the, fore-knowledge of
 Life and Death-; as I said before, you must
 use the prægustation, or præcognition of the
-Hawk.
+Hawk._
 
 
 
-LETTER XIV. Ξ.
+## LETTER XIV. Ξ.
 
-{G}, _an Herb. Xiphius, a Stone. Xiphius,
+_{G}, an Herb. Xiphius, a Stone. Xiphius,
 a Bird. {G}, a Fish known to all,
- called_
-Spatha _or_ Gladius.
+called_ Spatha _or_ Gladius.
 
 _Xiphion_, i.e. _Gladiole_, is an herb, which
 abounds in all Lands; it has Leaves like
@@ -1024,11 +1022,11 @@ with Myrrh, makes them that smell it seem
 as if they were possessed with the Devil. But
 do you anoynt your Nose with strong Oyntment,
 and you will no way be enraged or
-mad.
+mad._
 
 
 
-LETTER XV. O.
+## LETTER XV. O.
 
 _{G}, an Herb. {G}, a Bird. Orphos
 a Fish. {G}, a Stone known to all._
@@ -1063,7 +1061,7 @@ of the Matrix, and Swellings, and Ulcers,
 and Itchings, and all other Womens Diseases in
 the_ Matrix. And it is put into Medicines for
 the Kidneys. And it is good for _Cheironia,
-i. e._ the King's Evil_. The Eyes of a Quail,
+i. e._ the King's Evil. The Eyes of a Quail,
 with the Root of the Herb hung about one
 diminish a Quotidian and Quartan cold Fire
 in the wain of the Moon. _For Illusion;_ Dissolve
@@ -1086,7 +1084,7 @@ take any thing away that is in the House.
 
 
 
-LETTER XVI. Π.
+## LETTER XVI. Π.
 
 _{G}, some call it {G}, Knot-grass.
 Porphyrius, a pluvial Bird, or Pluver, which abounds
@@ -1119,11 +1117,11 @@ or Sight, there are nebula or nubes, hebetatio,
 latitudo pupille, effusio, effectio, defectio,
 atrophia,_ or _{G}, glaucedo, {G}, geminæ
 pupillæ, {G}, metalopa, myops, obscuratio,_ here
-are twelve. In the whole substance of the Eye,
+are twelve. In _the whole substance of the Eye,
 there are {G}, {G}, {G}, combustio,
 suffusio, apostema, comestio, ulcus, circumdolor,
 psydrakium,_ here are ten. And there are several
-sorts of _Rheums,lene, {A}, subitum, calidum,
+sorts of _Rheums, lene, {A}, subitum, calidum,
 dulce, frigidum, tepidum, tenue, acre, antiquum
 & arenosum, aluminosum,_ here are eleven
 Rheums, and in all fifty five Diseases.
@@ -1147,11 +1145,11 @@ under the Stone the end of the Birds Wings,
 and enclose it, and wear it _against every Headach,
 and every Hemicrania._ And it is also good
 for Rheumarick Eyes. In the Wain of the
-Moon make the Ring, And the Eye-salve._
+Moon make the Ring, And the Eye-salve.
 
 
 
-LETTER XVII. P.
+## LETTER XVII. P.
 
 _{G}, a Plant. Romphea, the Bird {G},
 an Owl with long Ears well known to all.
@@ -1182,7 +1180,7 @@ from him.
 
 
 
-LETTER XVIII. Σ.
+## LETTER XVIII. Σ.
 
 _{G}, an Herb. {G}, a Bird,
 Struthiogambarum, an Estrich. {G} a Fish,
@@ -1211,7 +1209,7 @@ powdered and given in Meat or rink secretly, _procures great Intenseness to them
 
 
 
-LETTER XIX. Τ.
+## LETTER XIX. Τ.
 
 
 
