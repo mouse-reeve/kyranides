@@ -62,9 +62,7 @@ white Wine mixt with it, to drink for seven
 days. And the Eagle-Stone worn about one,
 and the Fish eaten, do the same thing. _Keep
 this Gist of GOD, and give it not to thine own
-Son!_
-
-_For the Thumbs and incurable Nails_:
+Son!_ _For the Thumbs and incurable Nails_:
 When the Nail of the Thumb falls, and is incurable,
 and is alwayes running, infuse Dates
 bruised in white Wine, and lay them sometimes
@@ -85,9 +83,7 @@ crude _Misy_ ℥iv. Manna ℥iv. Illyrick Iris ℥j.
 Vitriol ℥iv. dissolved till they be dry; for
 this purges and fills ulcerous and eating Sores,
 and it stops a supervening Inflammation. And
-this is far greater.
-
-_For Putrefaction of the
+this is far greater. _For Putrefaction of the
 Tongue, and Mortification of the Gums_. But
 now we tell you something that is great. We
 saw something marcid and cancerous in the
@@ -95,17 +91,15 @@ Tongue, which was like also to mortifie the
 Gums; therefore by applying the Juice of
 the Leaves mixt with Honey, it was cured;
 then strewing on dry _Iris_, the Ulcer filled
-up. _For all Breaches, and a _Polypus_, and
+up. _For all Breaches, and a_ Polypus, _and
 Frettings, and Eatings, and Humors, and
 whatever happens about the Nose, a Divine Medicine_.
 Of the Juice of the Leaves ℥iv. Manna,
 Vitriol, Frankincense, _Misy_, _Aristolochia_,
 each three ounces: Rub them till all is dry, and use the Divine Virtue.
-
 _For Baldness and Shedding of the Hair, Sores, Scars, and any Diseases about the Head_:
 Apple the Juice of the Herb and the Juice of _Potamogeiton_,
 and the Juice of _Seseli_ skillfully mixt, anoynt for three days.
-
 _A Divine Medicine to keep the Teeth sound and firm, which I would not keep from you_.
 Of the Juice of the Grapes ℥j. or viii Spoonfulls, the Bark of Mulbery-Tree Root ℥vj.
 Boyl it to half, and give it to wash the
@@ -183,7 +177,7 @@ further, it has a Virtue like to the former.
 And the white Vine has other Efficacies
 secular and delightful, so that being applied,
 it does not only give any man Sobriety, but
-causes Delight. _So says _Kiranus_ this place_,
+causes Delight. _So says_ Kiranus _this place_,
 After the Dissonance of them both, there began
 _Harpocration_ his Speech: _O blessed Herb!
 Conducter of the Gods, and a Royal Conducter,
@@ -230,7 +224,7 @@ the little Draconthea , which is two hand
 breadths high, and it is as the Fish or the
 Serpent, and we put this for the other. _For
 a {G}, or a Flesh Dropsie, and a
-{G}, or Leprosie of the _Arabians_, and
+{G}, or Leprosie of the_ Arabians, _and
 any Leprosie_. For a pain in the Head, and
 the beginning of an _Elephantia_ and _Leprosie_
 and any breaking out of the Skin, the Fa(?)
@@ -846,7 +840,7 @@ it. Wherefore give this Divine Mystery to no man.
 
 ## LETTER XI. Λ.
 
-{G}, _the Frankincense tree. Lyngurius, a Stone. Lynx, a Vulture. {G} a Fish called Bass.
+_{G}, the Frankincense tree. Lyngurius, a Stone. Lynx, a Vulture. {G} a Fish called Bass._
 
 Libanus is a shrubby tree, whole Gum
 fumigated raises divine Spirits. _Lingurius_ is a
