@@ -1406,11 +1406,250 @@ thing.
 ## LETTER XXII. X.
 
 {G}, i. e. _Golden-Flour, us an Herb
-known to all. {}, a Golden-wing, is a
+known to all. {G}, a Golden-wing, is a
 Bird of the bigness of a Quail. {G} (or
 rather {G}) an edible Sea-fish known to all,
 a Guilt-head, {G}, a speckled Stone, and as
 it were Golden._
+
+The Flower therefore of _Chrysanthemum_ is
+of a Gold colour, and there are Chives in the
+middle of the Flower, like Ants, little
+and black, having little wings. This is called
+Man's Blood. This therefore is gathered before
+the rising of the Sun, the Sun being in
+Aries, and is put in a Glass Vessel with Oyl
+of Roses and the Flower of the Herb: Then
+coming in the Morning, take chastly a little
+of it, and anoint your Face, and go away
+confidently, _for it will make you amiable, and
+acceptable, and efficacious with all Men, and for
+all things._ And if you do this at the Sun-rising,
+it will be the more effectual. _And it is good
+for infortunate degrees, inefficacy and suchlike._
+The Root therefore of the Herb with the
+Stone out of the Fishes Head, tied in a Cloth,
+_is good for pain of Childrens Teeth in breeding
+them._ The Eyes of the Bird _Chrysepteris_, hung
+about one, _cure Tertian Agues._ Its Hearst also
+hung about the Neck cures Fevers. The
+Stone also of the Head of it, hung about the
+neck, _cures Consumptions_. In the Stone _Chrysites_
+engrave a Bird having a round Crown,
+and at its feet the Fish, and underneath enclose
+the Root of the Herb: _Give it to wear
+against Pains of the Stomach, and Fits of the
+Mother, and the Stone in the Kidneys. And it
+makes the wearer acceptable and amiable in
+all things. And it is good for Fevers,_ if it be
+put in Oyl, and unction be made with that
+Oyl, at Sun-setting. And it has other Efficacies.
+_A Drink for Love_, if you infuse it in
+Wine and drink it. And if any one have the
+stone of the Fishes Head with the foresaid
+things, it will be very good good _for Phthisical
+People._
+
+
+
+## LETTER XXIII. Ψ.
+
+_{G}, is an Herb known to all, Fleawort.
+{G} marinus, a very little Animal
+which Fishers use. It sings by the shore. {G},
+a well known Bird, a Starling. Psorites, a Stone
+called {G},_ i. e. _Vadum._
+
+Boyl therefore of the Seed of the Herb
+℥iij. in ℥xviij. of Water to viscosity, strain it
+through a Cloth, and throw away the dregs,
+and in the Water which you strained out, put
+of Wax ℥iij. of Oyl ℥vj. Then boyl them,
+till the Wax is melted, and rub it a long time
+in a Mortar. _For this is a divine Plaster for
+the Gout and Stone, and insensible Flesh._ And
+if you put the Stone into the Blood of the
+Bird, and anoynt the Face, _you will cure Tertian
+and Quartan Agues._ And if in the foresaid
+Juice of the Herb you dup the Stone
+thrice, and anoynt those, that have the
+_Head-ach_, in the Face, _you will keep them without
+pain._ And _Psyllus marinus_, tied up with
+viij Seeds of _Psyllium_ in a Cloth, and hung
+about the neck, _drives away a Fit of a Tertian
+Ague_. And boyl a great many _Psylli marini_
+in Sea-water, _and sprinkle it where there are many
+Fleas, and there shall be no more._ In the
+Stone _Psoricus_ engrave three _Psylli marini_,
+abiding under the green Reed, and
+enclose the Roots of the Herb, and
+give it _to a little one to wear, that falls and
+beats out his Teeth._ And if a Fisher carry it about
+him watching all day by a River or
+Pond, _he will make a great catching of Fish._
+
+
+
+## LETTER XXIV. Ω.
+
+_{G}, an edible Plant, known to all, Basil.
+{G}, a Bird, Swift-wing, a venerable
+Animal, common to all, {G}, a Swallow.
+{G} a Sea-fish, Ibembras, another calls it Kymbros,
+a small edible Animal, which is called {G},
+a Pilchard or Herring. {G},_ i. e.
+_velociter pariens, wuickly bearing, is a Stone less
+than the Eagle-stone and ratling. And it is
+smooth to the Touch._
+
+
+We know of the Plant Basil, and that is has
+great Effects. If any one chew this Herb fasting,
+and before he have washed, and shall
+set it in the open Air for seven nights, in which
+time the Sun may not see it, taking it away
+indeed by day, and by night exposing it to
+the open Air, he will find a Scorpion of seven
+knots and green. _If this stings any one,
+he will swell and die in three dayes._ And if
+you put it into water or wine, and give it any
+one to drink, all his Body will grow dry and
+leprous. For of this come incurable Ulcers.
+And if you bruise the same Scorpion with the
+seed of the herb _Scorpiona_, and make Pills,
+afterwards dry them and put them up in a
+Glass, and give them any one that is Epileptick,
+he will no longer be bart. And you
+must give it for seven dayes alike, three Pills
+fasting, in temperate wine. But if you give
+it to a healthy Man, he will grow Lunatick,
+and he will be incurable. And if you anoint
+_People in Tertian Agues_ with the Juice of the
+herb Basil and Swallow's Dung, you will cure
+them. And if you give a Swallow's Feather,
+and Basil root, _to a Woman in travail to hold,
+she will presently bring forth without any harm._
+If you put a Feather of the Bird in any Unguent,
+_you will have love and peace with all men._
+And concerning the common Scorpion
+I will hide nothing, because of the Error of
+the Foolish. For there is an Error implanted
+in the Air. If therefore you put a common
+Scorpion into ℥vijβ. of Oyl in the wain of
+the Moon, and keep it by you, and anoint
+any ones back, and the paslms of his hands,
+and the soles of his feet; but you must anoint
+the back from the top to the bottom,
+and the forehead, and the head before the
+hour of the Fit, _it will cure a Tertian, and a
+Quartan, and a Quotidian Ague. It also helps
+Lunaticks, and those that are possessed with the
+Devil._ But if you put a Feather of the Bird
+into other Oyl, and anoint him that is cured,
+his Disease will return, and he will die. And
+a common Scorpion roasted and eaten by
+those that have the Stone, _makes them piss the
+Stone without torment._ Tie up the string of a
+Scorpion, and the extremity of the Herb Basil,
+in which the Seed is, and a Swallow's heart
+in a Deer's skin, _and you will cure Lunaticks;
+and this Phylactery both casts out disobedient
+Devils, and compels them to go away._ And
+dissolve the foresaid Stone with the Juice of
+the Herb, and the blood of the Bird, and
+the head of a Herring, and a little water,
+and put it up in a Glass Vessel, and _when you
+have a mind to make shew of your power,_ dip
+the fingers of your hand, either right
+or left, _and touch the strongest stone that you
+please, or bone, or wood, it will presently break,
+so that you shall seem great._ And if one puts
+the head of a fresh Herring upon the Coals
+to fumigate, and he gets upon the house in
+the night, he will think _that all the Stars run
+into one._ And if any one at the full Moon
+shall put the head of the Animal into a dry
+Fig, and shall lay it on the Fire, when the
+Air is still he will see the Orb of the Moon
+as big as half of Heaven. _Another sight;_
+And if you mix a little of the Sea-star with
+it, you see great _Stichius_, he is the _Dæmon
+Fortune_, made, and standing at your
+feet. And if you powder the Stone _Pyrites_,
+and in like manner lay it on, _there will be
+Thunder and Lightning._ And if you also lay
+on Earth, which fell from an house upon a
+Man, there will be an Earthquake in the
+place. And {G} they call {G}, because it
+hath great virtue in the shoulders: for {G}
+is a shoulder. _And the Confection of the Plasters
+is in this manner;_ Of the bones which
+are in the shoulders of Herrings, Mandrake
+Apples, Henbane Seed, _Opium_, dried Roses
+each ℥j. (in another place Bark of the Root of
+_Ulmelea_ ℥iij.) _Colophonia_ ℔j. Sulphur ℥j. Nitre
+℥j. Make it as a Composition, and plaster
+whom you please with it, and he will quickly
+be rid of his Disease. But if you make a
+Fomentation applies for one day, and would
+give any relief, it will do no good. But it
+will not pass seven dayes: for this is the Medicine
+of things that are applied. And _Mænis_
+is so called, because it makes a Maniacal
+Confection in this manner, Take, I say, the
+eyes of a _Mænis_, and put them into Wine
+with some Lily, and infuse them so for seven
+dayes, then put into the Wine of Mandrake
+Seeds ℥xiv. Seeds of {G}, _i. e._ Dog-Briar
+℥iv. of the Herb _Scorpionia_ ℥iv. Boyl it to
+half, and put it up and use it. _For mad
+People;_ If you see any one in Madness, or a
+_Mania_, give him of the Wine ℥ij. with warm
+water, and he will be cured (in another Book
+it was ℥viij.) And if you mix it with an Eye-water,
+and make an infusion, and use it for
+seven dayes _in a suffusion of the Eyes,_ it will
+cure. And the Stones, that are in the head
+of a _Mænis_, powdered and mixt with the
+gall of a black _Alanitus, make one to see these
+things that are in the dark._ And if you mix
+it with a little of living Magnet, and a little
+Rain-water, and anoint, _you will see these
+things that are in the Heaven and in the Air for
+seven days._ Engrave on the Stone a Swallow,
+and at its Feet a Scorpion, standing upon
+a Herring, and under the Stone enclose
+the eyes of a Scorpion, and a Herring, and
+the Roots of _Scorpionia_, and wear it. _For it
+averts all venom of Animals, and will humble
+all Enemies and Traytors._ If any one be stung
+by a Scorpion, sign the Wound with the
+Seal, and presently he will be cured. If any
+one be _bitten by a mad Dog,_ and grow {G},
+he cannot drink a more precious
+Liquor. Take therefore the Ring, and put
+it in Water, and give him to drink, and he
+will be safe; and if you give it before Madness,
+he will not be mad. And if one give
+the Tongue of a young _Mænis_ dissolved in
+water, and putting the Ring into it, give it
+a mad man to drink, he will be safe. But if
+you give it to one that is sober, it will make
+him raging mad. His Relief is, to give him a
+roasted _Mænis_ to eat, and the man will become
+ignorant of the foresaid things. _As
+Divine_ Kiranides _sayes unto Men._
+
+_Thus_ Harpocration _finished this Book, and I
+found no other Book of them that are called_
+Kirandes. _But indeed in this, I say,_ Harpocration
+_was dissonant from_ Kirani, _or the
+one from the other: But we collected every
+Chapter out of each, as if set down, and we
+have made a Book, omitting nothing. And
+now we will pass to the other Books of_ Kirani,
+_that we may reap benefit by them._
+
 
 
 
