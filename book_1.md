@@ -8,10 +8,13 @@ BOOK I.
 
 ## LETTER I. A.
 
-{G} the white Vine. {G}, the Eagle, a Bird. {G}, the Eagle-stone.
-{G}, the Eagle, a Fish without Scales.
+_'Αμπελος λευκό the white Vine. 'αετός, the
+Eagle, a Bird. 'Aετίτης, the Eagle-stone.
+Aετός, the Eagle, a Fish without Scales._
 
-{G} is a molt holy and admirable Herb; it is also divine, and is called {G}, Bryony. The Male-Eagle is King of all Birds. The Eagle-stone is with Child and Rattles. The
+_'Αμπελος λευκό_ is a most holy and admirable
+Herb; it is also divine, and is called _βρυωνία,
+Bryony_. The Male-Eagle is King of all Birds. The Eagle-stone is with Child and Rattles. The
 Eagle, a Fish without Scales, is like the Hawkfish, only somewhat blacker, and like a little Thorn-back. For _Convulsions and Epilepsies_;
 Now the Root of the Herb worn about the
 Neck, cures People of Convulsions and the falling
@@ -1649,27 +1652,3 @@ Chapter out of each, as if set down, and we
 have made a Book, omitting nothing. And
 now we will pass to the other Books of_ Kirani,
 _that we may reap benefit by them._
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-

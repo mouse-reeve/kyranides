@@ -50,3 +50,54 @@ a Fume, _raises Lethargick people, and them
 that fall in an Epilepsie, and them that have
 Fits of the Mother._ And its Hair suffumigated
 _does the same_.
+
+
+B.
+
+{G}, i.e. _a Cow, known to all._ Take the dry
+Dung of this Creature, beat it, sift it, weigh
+of it ℔j. Wax ℥vj. Cabbage Juice ℥vj. (or
+in another Book iij.) raw Eggs iv. the best
+Oyl ℔j. Beat what is to be beaten, melt what
+is to be melted, put in the Eggs, and dissolve
+all a little longer. _By this Plaster you
+may cure the Spleen, Falling Sickness, Dropsie,
+and such like, and also water Ruptures, and
+the out._ Keep it secret, because it is a great
+thing. And if you dissolve the Dung in Vinegar,
+and anoint any place, or a _Vessel of
+Honey with it, Ants will not creep up._ And
+Cow Hoofs boyled, and eaten with Vinegar,
+_resist all Poysons, nothing more._ And Cow's
+Call _breaks the Corns o our Flesh and beautifies
+the Face._ And its Dung suffumigated under
+the Patient's Chair, _hastens the Birth, and
+brings away the After-burthen._
+
+
+B.
+
+{G}, i.e. _a Frog, a well known Animal._
+If one cuts its Tongue out, and let it go again
+alive, and make a superscription upon
+the Tongue thus, _XV Vox. chuoch, coja
+MH yogi edammoth,_ and shall lay it privately
+upon a Woman, as she is asleep, _the
+Woman will tell whatever she has done all her
+Life time._
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
