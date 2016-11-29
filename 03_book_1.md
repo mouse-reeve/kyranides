@@ -227,7 +227,7 @@ the Grape, the Grape makes heavenly
 Wine! Before you have said this, send the
 Cup, Bowl or Flagon about, of which all do
 drink, and they break out in Joy, no man
-complaining or asking. For _ώοχία_ (?), i. e. _Exultation_.
+complaining or asking. For _ἐνοχία_ (?), i. e. _Exultation_.
 The Juice of the Grape drunk
 causes great Joy. Plant it in every place.
 For neither the Solemnities of the Gods, nor
