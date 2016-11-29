@@ -307,7 +307,7 @@ _Γλυκυσίδη, the Herb Pæony. Γλαύξ a sort
 of Owl. Γνάνθιος, a Stone. Γλαῦκος, a Sea-fish
 known to all men._
 
-_Glykiside_ is the Herb _Pæon_; and it is called
+_Glykiside_ is the Herb _Pæony_; and it is called
 _Pæony_, from its Inventor _Pæon_; and it has
 a Fruit like the Gum of an Almond Tree.
 Some of its Seeds are open, and other close.
