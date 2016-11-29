@@ -264,9 +264,40 @@ many other things; all which I will not declare.
 
 ## LETTER II. Γ.
 
-{G} is a Bird which is called {G} i. e. _a Crow_, a common Animal, and known to all People, living to five hundred years of age. {G} is a precious Stone, a Beril which is called {G} i. e. _All Life_. {G} is a _Sea-Lobster_, so called from its likeness to {G}, i. e. red Tiles. {G}, i. e. The Herb Sevine, known to all People.
+_βοροσίτης_ is a Bird which is called _Κορώνη_
+i. e. _a Crow_, a common Animal, and known
+to all People, living to five hundred years
+of age. _Βήρυλλιο_ is a precious Stone, a Beril;
+which is called _πάνζωον_ i. e. _All Life_. _Βίασας_,
+is a _Sea-Lobster_, so called from its likeness to
+_Βησαλα_, i. e. red Tiles. _Binthi_, i.e. The Herb
+_Savine_, known to all People.
 
-_For Dyspnoïck (?), Orthopnoïck and Asthmatic Persons:_ Make this Electuary; Of Savine (???). Butter (???). Honey (???). Mix, and give it a fasting (tasting?). _For any Infirmity of the Eye_; Crab hung about the Neck, cure all Infirmities of the Eye. And the Bird hath the same Nature; for if the Female dies, the Male will not pair with another; and the Female does the same. _For Love between a Man and his Wife_. If a Man carry the Heart of a Male Crow, and a Woman the Heart of the Female, they will agree between themselves all their Life-time; and this Miracle is certain. _For Dyspnoïck, Epilseptick, and Nephritick People_. Take, I say, one Beril Stone and engrave a Crow upon it, and under its feet a Crab; enclose also a little Savine, and a little of the Heart of a Bird under the Stone, wear it as you will: for it is good for Dypsnoick, Epileptick and Nephritick Persons. _For Joy and Exultation, and Acquisition (?) and Union, and Conjugal Love_: And it will make the Bearer chearful and rich: And it is as excellent as any thing for lascivious and conjugal Love.
+_For Dyspnoïck, Orthopnoïck and Asthmatick
+Persons:_ Make this Electuary; Of Savine ℥j.
+Butter ℥iv. Honey ℥iij. Mix, and give it a fasting [sic].
+_For any Infirmity of the Eye_; Crabs
+hung about the Neck, cure all Infirmities
+of the Eye. And the Bird hath the same Nature;
+for if the Female dies, the Male will
+not pair with another; and the Female does
+the same. _For Love between a Man and his
+Wife_. If a Man carry the Heart of a Male
+Crow, and a Woman the Heart of the Female,
+they will agree between themselves
+all their Life-time; and this Miracle is certain.
+_For Dyspnoïck, Epileptick, and Nephritick
+People_. Take, I say, one Beril Stone,
+and engrave a Crow upon it, and under its
+feet a Crab; enclose also a little Savine,
+and a little of the Heart of a Bird under the
+Stone, wear it as you will: for it is good
+for Dypsnoïck, Epileptick and Nephritick
+Persons. _For Joy and Exultation, and Acquisition
+and Union, and Conjugal Love_: And
+it will make the Bearer chearful and rich:
+And it is as excellent as any thing for lascivious
+and conjugal Love.
 
 
 
