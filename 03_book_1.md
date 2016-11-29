@@ -170,7 +170,7 @@ Caution._
 And there are two sorts of it. The first is
 called the white Vine, which some call Bryony,
 others Snake-Grape; others Celidonia, others
-_μιλήτον_ others _ψιλωθρον_, others _αρχισωστικη_,
+_μίλητον_ others _ψίλωθρον_, others _αρχισωστικη_,
 others _Kethedron_. The Buds, and Leaves,
 and Claspers of this are like the Domestick
 Vine, but they are thicker, and implicated
