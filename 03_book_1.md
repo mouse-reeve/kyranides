@@ -303,11 +303,62 @@ and conjugal Love.
 
 ## LETTER III. Γ.
 
-{G}, _the Herb Pæony_. {G} a sort of Owl. {G}, a Stone. {G} a Sea-fish known to all men.
+_Γλυκυσίδη, the Herb Pæony. Γλαύξ a sort of Owl. Γνάνθιος, (?) a Stone. Γλαῦκος a Sea-fish known to all men.
 
-_Glykiside_ is the Herb _Pæon_; and it has a Fruit like the Gum of an Almond Tree. Some of its Seeds are open, and other close. _Glaux_ is a Bird which is ascribed to _Pallos_; it has a Crown of Feathers upon its Head, and great Eyes like a Night-Raven, living in the Fields. _Gnanthius_ is a Stone as hard as a Milstone, like a Granate. _Glaucus_ is a Sea-Fish, known to all men. Now there are two sorts of the Herb, Female and Male. _That a Woman may conceive_: If therefore a Woman do not retain the Man's Seed, and would conceive, let her be girt with the close Seeds of the Divine Herb, trying it in a Linnen Cloth died of seven Colours; let it be put about her Twist. _That she may not conceive_; But if she have no mind to conceive, let her gird her self with the open Seeds, and the Way of a Mules Ear; as long as she pleases.
-_For casie (?) Travail_: But if there
-be danger in the Pains of Birth, bruise the open Seed, and make it up with Oyl, and (?) and anoint the Loyns and Twist, and she will bear without pain. _To chase away Devils and Phantasms_: And its Root in Fume or in Drink, expels Devils and all (?) Phantasms, and being worm, it does the same. _For a Miracle_. The Eyes of the Bird _Glaux_ and of the Fish _Glaucus_, bruise them with a little Sea-water, and put them in a GLass bottle. But it is better to dissolve the G??? of them both, and to keep it in a Glass bottle. And when you would have the Virtue of Nature to be admired, Parchments must be written with the foresaid soft Collyrium, and in the day indeed it will not appear; but when it is dark, that which is written must be read. And, if you please, draw any _Animal_ upon the wall, and when Night comes they that are in the dark shall think what they see is either Devils or Gods. _That one may seem strong, and glorious, and faithful to men, and that he may see true Dreams_. And if any one will engrave upon the Stone _Gnanthius_ the Bird _Glaux_, and under its Feet the Fish, and under these enclose the Eyes, and wear it, abstaining from Swines Flesh and from uncleanness, when it is dark he shall appear an elegant Man; therefore those that see him, shall think him Divine. In the day time also whatsoever he sayes, he shall be believed in it. And has in bed it will shew true Visions.
+_Glykiside_ is the Herb _Pæon_; and it is called
+_Pæony_, from its Inventor _Pæon_; and it has
+a Fruit like the Gum of an Almond Tree.
+Some of its Seeds are open, and other close.
+_Glaux_ is a Bird which is ascribed to _Pallos_;
+it has a Crown of Feathers upon its Head,
+and great Eyes like a Night-Raven, living in
+the Fields. _Gnanthius_ is a Stone as hard as a
+Milstone, like a Granate. _Glaucus_ is a Sea-Fish,
+known to all men. Now there are
+two sorts of the Herb, Female and Male.
+_That a Woman may conceive_: If therefore a
+Woman do not retain the Man's Seed, and
+would conceive, let her be girt with the
+close Seeds of the Divine Herb, tying it in
+a Linnen Cloth died of seven Colours; let
+it be put about her Twist. _That she may not
+conceive_; But if she have no mind to conceive,
+let her gird her self with the open
+Seeds, and the Way of a Mules Ear; as long
+as she pleases. _For easie Travail_: But if there
+be danger in the Pains of Birth, bruise the
+open Seed, and make it up with Oyl, and
+and [sic] anoint the Loyns and Twist, and she
+will bear without pain. _To chase away Devils
+and Phantasms_: And its Root in
+Fume or in Drink, expels Devils and all
+Phantasms, and being worn, it does the same.
+_For a Miracle_. The Eyes of the Bird _Glaux_,
+and of the Fish _Glaucus_, bruise them with a
+little Sea-water, and put them in a Glass-bottle.
+But it is better to dissolve the Gall
+of them both, and to keep it in a Glass-bottle.
+And when you would have the Virtue
+of Nature to be admired, Parchments must be
+written with the foresaid soft _Collyrium_, and
+in the day indeed it will not appear; but
+when it is dark, that which is written may
+be read. And, if you please, draw any _Animal_
+upon the wall, and when Night comes,
+they that are in the dark shall think what they
+see is either Devils or Gods. _That one may
+seem strong, and glorious, and faithful to all
+men, and that he may see true Dreams_. And
+if any one will engrave upon the Stone _Gnanthius_
+the Bird _Glaux_, and under its Feet the
+Fish, and under these enclose the Eyes, and
+wear it, abstaining from Swines Flesh and
+from all uncleanness, when it is dark he
+shall appear an elegant Man; therefore those
+that see him, shall think him Divine. In the
+day time also whatsoever he sayes, he shall
+be believed in it. And has in bed it will
+shew true Visions.
 
 
 
