@@ -305,7 +305,7 @@ and conjugal Love.
 
 _Γλυκυσίδη, the Herb Pæony. Γλαύξ a sort
 of Owl. Γνάνθιος, a Stone. Γλαῦκος, a Sea-fish
-known to all men.
+known to all men._
 
 _Glykiside_ is the Herb _Pæon_; and it is called
 _Pæony_, from its Inventor _Pæon_; and it has
