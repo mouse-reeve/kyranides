@@ -14,8 +14,11 @@ Aετός, the Eagle, a Fish without Scales._
 
 _'Αμπελος λευκό_ is a most holy and admirable
 Herb; it is also divine, and is called _βρυωνία,
-Bryony_. The Male-Eagle is King of all Birds. The Eagle-stone is with Child and Rattles. The
-Eagle, a Fish without Scales, is like the Hawkfish, only somewhat blacker, and like a little Thorn-back. For _Convulsions and Epilepsies_;
+Bryony_. The Male-Eagle is King of all Birds.
+The Eagle-stone is with Child and Rattles. The
+Eagle, a Fish without Scales, is like the Hawkfish,
+only somewhat blacker, and like a little
+Thorn-back. For _Convulsions and Epilepsies_;
 Now the Root of the Herb worn about the
 Neck, cures People of Convulsions and the falling
 Sickness. _For the bloody Flux, and spitting
@@ -43,7 +46,7 @@ mortal Body might not fail._ Take of White
 Wine a Pint and an half, with the tender
 Buds of the Herb XL, and Coriars Galls ℥iij.
 Boyl two thirds away; this cures Dysenteries
-and Lienterics, and broken Bones of the hands,
+and Lienteries, and broken Bones of the hands,
 and every Disease of the Arse, and every such
 thing, if it be drunk. A Decoction of the
 Leaves also, drunk with a little Honey, asswages
@@ -99,13 +102,17 @@ Frettings, and Eatings, and Humors, and
 whatever happens about the Nose, a Divine Medicine_.
 Of the Juice of the Leaves ℥iv. Manna,
 Vitriol, Frankincense, _Misy_, _Aristolochia_,
-each three ounces: Rub them till all is dry, and use the Divine Virtue.
-_For Baldness and Shedding of the Hair, Sores, Scars, and any Diseases about the Head_:
-Apple the Juice of the Herb and the Juice of _Potamogeiton_,
-and the Juice of _Seseli_ skillfully mixt, anoynt for three days.
-_A Divine Medicine to keep the Teeth sound and firm, which I would not keep from you_.
-Of the Juice of the Grapes ℥j. or viii Spoonfulls, the Bark of Mulbery-Tree Root ℥vj.
-Boyl it to half, and give it to wash the
+each three ounces: Rub them till all is dry,
+and use the Divine Virtue. _For Baldness and
+Shedding of the Hair, Sores, Scars, and any
+Diseases about the Head_: Apply the Juice of
+the Herb and the Juice of _Potamogeiton_, and
+the Juice of _Seseli_ skillfully mixt, anoynt for
+three days. _A Divine Medicine to keep the Teeth
+sound and firm, which I would not keep from
+you_. Of the Juice of the Grapes ℥j. or viii
+Spoonfuls, the Bark of Mulbery-Tree Root
+℥vj. Boyl it to half, and give it to wash the
 Mouth for three or five or seven days, and
 your Teeth will never ake. If one will diligently
 consider, the Vine will cure all Diseases
@@ -123,11 +130,24 @@ King's Evil, and eating Flesh, and putrid Ulcers
 and Gangrenes_. And it has also another
 very famous Virtue and Divine Efficacy; for
 it cures the King's Evil, and putrid Ulcers and
-Gangrenes, and eating Sores, made up with _Aristolochia_ into Plaster. And its Root rosted brings a good Colour into the Face, and a tender Skin. _And it takes out Moles, Corns, and Freckles; Mixt with Flower of bitter Vetch and Fœnugreek, it takes away Corns, Freckles and black Moles_. And boiled with Oyl till it congeals, it congeals, it is good for the same. And the Root broken in Wine, takes away Lividness of the Eyes and Whitlows. _For a Swelling_. It an ends any Ulcer of the Genitals, and dissipates and disperses Swellings. _For the Epilepsie_. An ounce of it given every day for a Year with _Oxymel_, cures it. _For the Apoplexy
+Gangrenes, and eating Sores, made up with
+_Aristolochia_ into Plaster. And its Root rosted
+brings a good Colour into the Face, and a
+tender Skin. _And it takes out Moles, Corns, and
+Freckles;_ Mixt with Flower of bitter Vetch
+and Fœnugreek, it takes away Corns, Freckles
+and black Moles. And boiled with Oyl
+till it congeals, it is good for the same. And
+the Root broken in Wine, takes away Lividness
+of the Eyes and Whitlows. _For a Swelling_.
+It an ends any Ulcer of the Genitals, and
+dissipates and disperses Swellings. _For the
+Epilepsie_. An ounce of it given every day for
+a Year with _Oxymel_, cures it. _For the Apoplexy
 and Swimming in the Head, and Biting of
 Serpents, and Miscarriage_. It is also good for
 Apoplectick and Vertiginous Persons: Give
-(???), and it quickly cures such as are bitten by
+℥ij, and it quickly cures such as are bitten by
 Serpents; It corrupts the Birth also, and disturbs
 the Belly and the Sense; and applied,
 it brings away the Secundine, and drunk, it
