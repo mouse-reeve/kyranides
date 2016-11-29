@@ -303,7 +303,9 @@ and conjugal Love.
 
 ## LETTER III. Γ.
 
-_Γλυκυσίδη, the Herb Pæony. Γλαύξ a sort of Owl. Γνάνθιος, (?) a Stone. Γλαῦκος a Sea-fish known to all men.
+_Γλυκυσίδη, the Herb Pæony. Γλαύξ a sort
+of Owl. Γνάνθιος, a Stone. Γλαῦκος, a Sea-fish
+known to all men.
 
 _Glykiside_ is the Herb _Pæon_; and it is called
 _Pæony_, from its Inventor _Pæon_; and it has
@@ -362,39 +364,59 @@ shew true Visions.
 
 
 
-## LETTER IV. δ.
+## LETTER IV. Δ.
 
-_Draconthea, the Herb Dragons_. {G}, _the Bird Woodpecker_. _Draco, a Fish_. _Dendritis, a Tree stone_.
+_Draconthea, the Herb Dragons. Δενδροκολάπτης,
+the Bird Woodpecker. Draco, a Fish. Dendritis, a Tree stone_.
 
-_Draconthea_ is an Herb, having Seed like the eyes of a Dragon, bread leaves, is bad altogether. The _Woodpecker_ is a Bird known to all, as big as a Quail, it perforates Oaks, Olive trees and Nut trees, that it may make a Nest in the middle of the Wood. The _Dragon_ is a Sea fish without scales: After therefore that it has voided much, and would also(?) over great violence, the Cloud of Heaven snatch it into the Air, and dash it against the Mountains, tearing it Limb from Limb, so that is it no more. _That one be not hurt_; It is two forked, like a Horses Tail, two fingers in length. Putting it in Oyl, keep it. Putting it in Oyl indeed, it preserves all People from fascination and infirmity. For I saw this upon the Sea coasts of the _Assyrian_ Countrey. _Dendrites_ is a Stone, which is known by many; This grows in
-India in Rocky maritime places about six
+_Draconthea_ is an Herb, having Seed like
+the eyes of a Dragon, broad leaves, is bad
+altogether. The _Woodpecker_ is a Bird known
+to all, as big as a Quail, it perforates Oaks,
+Olive trees and Nut trees, that it may make
+a Nest in the middle of the Wood. The
+_Dragon_ is a Sea fish without scales: After
+therefore that it has voided much, and would
+do over great violence, the Clouds of Heaven
+snatch it into the Air, and dash it against
+the Mountains, tearing it Limb from
+Limb, so that is it no more. _That one be not
+hurt_; It is two forked, like a Horses Tail,
+two fingers in length. Putting it in Oyl,
+keep it. Putting it in Oyl indeed, it preserves
+all People from fascination and infirmity.
+For I saw this upon the Sea coasts of
+the _Assyrian_ Countrey. _Dendrites_ is a Stone,
+which is known by many; This grows in
+_India_ in Rocky maritime places about six
 fingers high. _For Hearing_; The Seed of the
-Herb _Draconthea_ worn sharpens the Sight
+Herb _Draconthea_ worn sharpens the Sight,
 and removes a little pain in the Head. The
 Feather also of the Bird, with a little of the
-Stone Dendrites, cures the _Hemicrania_ or half Head-ach. In like manner the
+Stone _Dendrites_, cures the _Hemicrania_
+or half Head-ach. In like manner the
 Feather of the Bird, and a little of the Fish
 bruised and applied, suddenly cures every
 Head-ach. Let us not therefore mistake for
-the difficult finding of the great _Draconthea_
+the difficult finding of the great _Draconthea_,
 but those things which are done, are from
-the little Draconthea , which is two hand
-breadths high, and it is as the Fish or the
+the little _Draconthea_, which is two hand-breadths
+high, and it is as the Fish or the
 Serpent, and we put this for the other. _For
-a {G}, or a Flesh Dropsie, and a
-{G}, or Leprosie of the_ Arabians, _and
+a λευκοφλεγματία, or a Flesh Dropsie, and an
+έλεφαντία, or Leprosie of the_ Arabians, _and
 any Leprosie_. For a pain in the Head, and
-the beginning of an _Elephantia_ and _Leprosie_
+the beginning of an _Elephantia_ and _Leprosie_,
 and any breaking out of the Skin, the Fa(?)
 of the Dragon-Fish with the Juice of the
 Herb, anoynt morning and evening. _To open
-Doors, Locks, Dolts, and to tame wild Beasts
+Doors, Locks, Dolts, and to tame wild Beasts,
 and to be beloved of all, and to acquire all(?)
 things, that whatever you please may be done
 for you_. And if one obtain the hole of
-Tree, in which the young ones of the Wood
-pecker are, he shall carry the Herb which
-knows, and touching it opens; For if it be
+Tree, in which the young ones of the Woodpecker
+are, he shall carry the Herb which
+knows, and touching it opens: For if it be
 made of Clay or Chalk, the dirt will fall:
 If of Stone it bursts: If a wooden Board or
 iron Plate be so fastned with Nails, all things
@@ -415,12 +437,12 @@ he shall also be beloved and observed
 of all, and whatsoever he hath a
 mind to, he shall acquire and perform. _Mercury_
 was a most accursed Pagan, and was
-worshipped as a God : but I worship _Christ_,
+worshipped as a God: but I worship _Christ_,
 and do unwillingly write of _Mercury_. _O the
 Blessedness of the Gods!_ _Mercury_ is an Animal
 unknown to GOD, and also his Nature.
 For who can find out the generation of Men?
-He is not, yea, a deceiver, Thou art wife,
+He is not, yea, a deceiver, Thou art wise,
 and instructing hast given understanding in
 the Pillar, _Thus far Nature_. But he that
 carries it, shall learn those things that are in
