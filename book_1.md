@@ -170,7 +170,7 @@ Caution._
 And there are two sorts of it. The first is
 called the white Vine, which some call Bryony,
 others Snake-Grape; others Celidonia, others
-_μιλήτον_ others _ψίλωζ?ν_ (?), others _αρχοωξικό_ (?),
+_μιλήτον_ others _ψιλωθρον_, others _αρχισωστικη_,
 others _Kethedron_. The Buds, and Leaves,
 and Claspers of this are like the Domestick
 Vine, but they are thicker, and implicated
@@ -182,7 +182,7 @@ is called the _black Vine_, which they also call
 Bryony; and some _χειρώνιον_, having Leaves
 like Ivy, but the great ones like Bind-weed,
 but greater; this also applies itself to, and
-takes hold of Trees with its Clafpers. And its
+takes hold of Trees with its Claspers. And its
 Fruit is like Grapes; they are green in the
 beginning, and when they are ripe, they are
 black without, but like Box within. And its
@@ -228,8 +228,38 @@ Wine! Before you have said this, send the
 Cup, Bowl or Flagon about, of which all do
 drink, and they break out in Joy, no man
 complaining or asking. For _ώοχία_ (?), i. e. _Exultation_.
-The Juice of the Grape drunk causes great Joy. Plant it in every place. For neither the Solemnities of the Gods, nor of Mortals, who have a term in their Life; nor what things in Life do come, nor what things now go out, nor some of those things that are acted in Life, can be done without this Plant. Also occult things require planting of it._For people troubles with Quartane Agnes_; It yet remains for me to speak if the certain _Cacodemon_ (or evil Spirit) which is call'd a Quartanary, who is not easily conquered by five Fortitudes of the first Decan of _Capricorn_, because he sees not, nor hears, for he is without a Head. Therefore take the Grape having four Seeds, take out the Kernels with your Nails, and not with your
-Mouth, and put them in a course Cloth, and hang them about your Neck, and it will cause Health. And the Stone that is in the Head of the Fish, hung about the Neck, takes away a Quartane. Therefore take the Eagle-Stone, and engrave also an Eagle upon it, and under the Stone put the Kernels of the Grape, and the top of the Feathers of an Eagles wing; and if you have not an Eagle, of an Hawks, and enclosing it, wear it. For it will preserve you from all the foresaid Occasions of Evil: Moreover it will give you power to speak, and to have friendly conferences with Great Men; and it is good for many other things; all which I will not declare.
+The Juice of the Grape drunk
+causes great Joy. Plant it in every place.
+For neither the Solemnities of the Gods, nor
+of Mortals, who have a term in their Life;
+nor what things in Life do come, nor what
+things now go out, nor some of those things
+that are acted in Life, can be done without
+this Plant. Also occult things require the
+planting of it. _For people troubles with Quartane
+Agnes_; It yet remains for me to speak
+of the certain _Cacodemon_ (or evil Spirit) which
+is call'd a Quartanary, who is not easily conquered
+by five Fortitudes of the first Decan
+of _Capricorn_, because he sees not, nor hears;
+for he is without a Head. Therefore take the
+Grape having four Seeds, take out the Kernels
+with your Nails, and not with your
+Mouth, and put them in a course Cloth,
+and hang them about your Neck, and it will
+cause Health. And the Stone that is in the
+Head of the Fish, hung about the Neck, takes
+away a Quartane. Therefore take the Eagle-Stone,
+and engrave also an Eagle upon it,
+and under the Stone put the Kernels of the
+Grape, and the top of the Feathers of an
+Eagles wing; and if you have not an Eagle,
+of an Hawks, and enclosing it, wear it. For
+it will preserve you from all the foresaid Occasions
+of Evil: Moreover it will give you
+power to speak, and to have friendly conferences
+with Great Men; and it is good for
+many other things; all which I will not declare.
 
 
 ## LETTER II. Γ.
