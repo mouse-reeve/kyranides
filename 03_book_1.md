@@ -407,11 +407,11 @@ a λευκοφλεγματία, or a Flesh Dropsie, and an
 έλεφαντία, or Leprosie of the_ Arabians, _and
 any Leprosie_. For a pain in the Head, and
 the beginning of an _Elephantia_ and _Leprosie_,
-and any breaking out of the Skin, the Fa(?)
+and any breaking out of the Skin, the Fat
 of the Dragon-Fish with the Juice of the
 Herb, anoynt morning and evening. _To open
 Doors, Locks, Dolts, and to tame wild Beasts,
-and to be beloved of all, and to acquire all(?)
+and to be beloved of all, and to acquire all
 things, that whatever you please may be done
 for you_. And if one obtain the hole of
 Tree, in which the young ones of the Woodpecker
@@ -527,11 +527,11 @@ _Smilax_ is a very strong Herb, like the Plant
 Ivy. _For Women's Travail_. If you Crown a
 Woman with it, that has hard Travail, she
 will presently bring forth without pain. _For
-Prægnation_. If any Woman suffer-difficulty
+Prægnation_. If any Woman suffer difficulty
 with pain in prægnation, gird her with it,
 and she will breed without pain. And if
-you mix of the Juyce of the. Leaves ℥j. and
-of Honey another and give it an Hydropick
+you mix of the Juyce of the Leaves ℥j. and
+of Honey another ℥. and give it an Hydropick
 person, the party will purge without
 danger: But a Woman, if she drinks it,
 will suffer a Flux of Blood. _Zaucos_ or _Zeucos_,
@@ -541,11 +541,11 @@ _Zmirena_, a Sea-Lamprey, is known to all.
 An Emerauld is a known Stone. Therefore
 if you give the Gut of an _Harpe_ to any one
 to eat, the Eater will be torn; for he will be
-insatiable. And if yon give the great Cut
+insatiable. And if you give the great Gut
 of it, which is called _κωλέντερον_ or _Colon_, powdered
-in drink to any or roasted to eat,
-it will persectly cure the Colick. _For People
-troubled with the Quartane Ague and the Leprosie_:
+in drink to any one, or roasted to eat,
+it will perfectly cure the Colick. _For People
+troubled with the Quartane Ague and the Leprosie_.
 And its Fat applied with an Oyntment of
 Oyl expels a Quartane. The Dung also applied
 with Vinegar stops Leprosie. And whatever
@@ -553,12 +553,12 @@ you will of the Liver given inwardly,
 corrupts all things that are within. _For all
 disturbance of Dreams, and Lunaticks, and those
 that are troubled with the Colick_. The Emerauld
-is a green precious Stone. Engrave ,
+is a green precious Stone. Engrave
 therefore upon it the Bird _Harpe_, and under
 its feet a Sea-Lamprey, and under the Stone
 enclose the Root of the Herb, and wear it,
 against Disturbance, and Dreams, and Stupidity.
-It causes Rest to Lunaticks, and in
+It causes Rest to Lunaticks, and to
 them that are troubled with the Colick. And
 it is better, if the Fat of the Sea-Lamprey be
 put underneath: For this is Divine.
@@ -568,7 +568,7 @@ put underneath: For this is Divine.
 _Ἠρύγγιος, the Herb we call Eryngo. [Ηλιακή](http://lsj.translatum.gr/wiki/%E1%BC%A1%CE%BB%CE%B9%CE%B1%CE%BA%CF%8C%CF%82),
 the Sun-Bird, or [Φοινικόπτερα](http://lsj.translatum.gr/wiki/%CF%86%CE%BF%CE%B9%CE%BD%CE%B9%CE%BA%CF%8C%CF%80%CF%84%CE%B5%CF%81%CE%BF%CF%82), i.e having scarlet
 Wings.[ Ἥφαιστος](http://lsj.translatum.gr/wiki/%E1%BC%AD%CF%86%CE%B1%CE%B9%CF%83%CF%84%CE%BF%CF%82), S. emagines, Vulcane's Stone.
-[Ηδονή](http://lsj.translatum.gr/wiki/%E1%BC%A1%CE%B4%CE%BF%CE%BD%CE%AE), the Fish Delight, some call it Assidion, a
+[Ηδονή](http://lsj.translatum.gr/wiki/%E1%BC%A1%CE%B4%CE%BF%CE%BD%CE%AE), the Fish Delight, some call it Affidion, a
 kind of Anchovy._
 
 _Eryngo_ is an Herb like _Calamus_; it grows
@@ -593,15 +593,15 @@ Morning, in Bed: But if you heat _φλοιώδες ροάς_ (?)
 do more good. _Hedone_ is a Sea-fish, which
 is called _Aphydion_, being often eaten, it cures
 the bloody Flux, and Pains in the Kidneys.
-And in _Hephastion_'s i. e. _Vulcane_'s Stone, which
+And in _Hephastion_'s, i.e. _Vulcane_'s Stone, which
 is called _Pyrites_, or the Fire-stone, if any one
-engrave a _Phanicopterus_, and at its Feet a
+engrave a _Phœnicopterus_, and at its Feet a
 Scorpion, and put under the Stone the Root
 of the Herb, he will have a Phylactery, and
 a Guard, or a Treacle against poysonous
 Stings; it also drives away nocturnal Phantasms,
 and all Witchcraft, and is good also
-for those that arc troubled with the Stone.
+for those that are troubled with the Stone.
 Being worn, it confers the Grace and Vertue
 of Prudence. _Saturnius_ himself wore it, and
 _Phaos_ in Heaven; and in Earth it possesses
@@ -612,7 +612,7 @@ but forces every Earth, beating Men with
 the Degree of Fortune, binding them in Necessities.
 A certain Saturnine King _Kiranis_
 _Κυλινδράτης_, turning and rolling circular upon
-the Centre, with uncorrupt, and never failing
+the Centre, with uncorrupt, and never-failing
 Changes, whirling all things from the
 _East_ to the _West_, in the seven Arctick, i. e.
 _North_, Stars, holding and moving all strange
@@ -660,7 +660,7 @@ or Houp, of seven Colours, having a Crest on
 his Head, the height of two Fingers, which
 extends and contracts. And it is of four Colours,
 that it may be directed to the four
-Seasons of the Year. This Bird is called Cucubas,
+Seasons of the Year. This Bird is called _Cucubas_,
 as it is written concerning the same, in
 a former Book, that is called _Archaicus_. And
 this Animal is sacred. Take therefore this
@@ -765,7 +765,7 @@ all my Enemies, and I was invincible.
 For he that carries this Phylactery, shall have
 Gifts from GOD, which he hoped not for,
 and he shall be honoured on every hand, conquering
-all men in Word and Work, deliveing
+all men in Word and Work, deliveing [sic]
 from all danger, and from the Devil, and
 from Witchcraft, and from all Evil. I will
 say further: _It averts all evil, and confers all
@@ -779,7 +779,11 @@ Kirani _is perfect_.
 
 _[θύρσος](http://lsj.translatum.gr/wiki/%CE%B8%CF%8D%CF%81%CF%83%CE%BF%CF%82), Herba Dionysi, Ivy. Thyr, a Bird. Thyrsites a Stone. [θύννος](http://lsj.translatum.gr/wiki/%CE%B8%CF%8D%CE%BD%CE%BD%CE%BF%CF%82) a Fish_.
 
-_Thyrsites_ or _Thyrsus_ the Herb of _Bacchus_, fruitful and profitable for all things. _Thyr_ is a Bird like the Hawk of the Sea, having a divine Efficacy. _Thyrsite_ is a Stone like to Coral. _Thynnus_, a Tuny, is a Sea-fish, and
+_Thyrsites_ or _Thyrsus_ the Herb of _Bacchus_,
+fruitful and profitable for all things. _Thyr_
+is a Bird like the Hawk of the Sea, having a
+divine Efficacy. _Thyrsite_ is a Stone like to
+Coral. _Thynnus_, a Tuny, is a Sea-fish, and
 is eaten, like to a Whiting, which being
 great is known indeed. _Balkera_ is _Bacchus_
 his Plant. In the Feasts of _Bacchus_ they put
@@ -886,9 +890,9 @@ hereafter. And they are in the head. And it
 has also another Stone in the third Joynt of
 the back towards the Tail, which is most
 powerful, and is requisite in the Spell or Ligature
-of {G}, i. e. _Venus_. The Stone
+of [Ἀφροδίτη](http://lsj.translatum.gr/wiki/%E1%BC%88%CF%86%CF%81%CE%BF%CE%B4%CE%AF%CF%84%CE%B7), i. e. _Venus_. The Stone
 _Kynædius_ was unknown, because it is exceeding
-scarce, and is called _Opisranus_ ({G})
+scarce, and is called _Opisianus_ (όψίμοι)
 i. e. late or slow. For it is Saturnine. This
 Stone is double or twofold: One is obscure
 and black; the other is black indeed, but
@@ -906,7 +910,7 @@ Man, he will not erect to coition for seven
 dayes. _That a Cock may not tread an Hen_;
 Give it to a Cock in Bran or Paste, and he
 will not tread a Hen. _That a man for one
-day may be {G},i_ i. e. _a Fornicator_; That
+day may be Κύναιδοι,_ i. e. _a Fornicator_; That
 which is in the Fish _Kynædius_, in the third
 Joynt of the backbone, if you give it in
 meat or drink, a man will be a manifest Fornicator
@@ -1002,12 +1006,12 @@ Goddess _Nemesis_ having her foot upon a
 wheel, and holding a Rod. And other two
 immaculate Pearls, being on each side not
 engraven, and put in the _Cesius_; so that in all
-there are thirteen Stones nxt in Golden Cases,
+there are thirteen Stones fixt in Golden Cases,
 and so sewed in a ligature, that they may
 not be seen by the Crowd. And there is a
 twofold holy ligature, and it follows: Another
 Stone may be carried, hung about the
-neck, which is called {G} i. e. Lunar
+neck, which is called [Σεληνίτης](http://lsj.translatum.gr/wiki/%CF%83%CE%B5%CE%BB%CE%B7%CE%BD%CE%AF%CF%84%CE%B7%CF%82) i. e. Lunar
 Stone, in which the Encrease of the Moon
 and its Divinity appears. And let it have a
 Moon engraven, and underneath the Stone
@@ -1030,7 +1034,9 @@ it. Wherefore give this Divine Mystery to no man.
 
 ## LETTER XI. Λ.
 
-_{G}, the Frankincense tree. Lyngurius, a Stone. Lynx, a Vulture. {G} a Fish called Bass._
+_Λίβανοι, the Frankincense tree. Lyngurius,
+a Stone. Lynx, a Vulture. Λάβραξ, a Fish called
+a Bass._
 
 Libanus is a shrubby tree, whole Gum
 fumigated raises divine Spirits. _Lingurius_ is a
@@ -1044,8 +1050,8 @@ Eye-Salve is made for all dimness of the Eyes
 so that in three days it makes the Sight sharp. It
 is good for the beginning of a Suffusion, a Cataract,
 turning back of the Eye-lid, Roughness
-dilatation of the Pupilla, Owl-fightednes, Watriness,
-itchng, Driness, falling away of the
+dilatation of the Pupilla, Owl-fightedness, Watriness,
+itchng [sic], Driness, falling away of the
 hairs of the Eye-lids, eating away of the Corners
 of the Eyes, and for many other Diseases. Anointing
 with it is excellent good for all these things._ And
@@ -1054,9 +1060,9 @@ _Lapis Lyngurius_ ℥ii. Vultures Gall ℥vi. liver
 of a Bass ℥iij. the best Honey ℥vj. When
 this is old, it is better. But _Kirani's_ Eye Salve
 was thus;  Of _Olibanum_ ℥vj. Gall of a
-_Bass_, Gall of a Vultur, each ℥vj. Prpper ℥iij.
-Honey without dross ℥iij. In the _[Lapis?]
-Lyngurius_ engrave a Vulture, and put underneath
+_Bass_, Gall of a Vultur, each ℥vj. Pepper ℥iij.
+Honey without dross ℥iij. In the Stone
+_Lyngurius_ engrave a Vulture, and put underneath
 a little Frankincense, and the top of
 the Bird's Wings, and carry it: for it will be
 good for the Pin and Web in the Eyes.
