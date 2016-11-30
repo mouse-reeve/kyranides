@@ -520,7 +520,7 @@ and wild Beasts will fly from you.
 
 
 ## LETTER VI. Z.
-{G}, _the Herb Bindweed. Zaukos, a Bird.
+_Ζμίλαξ, the Herb Bindweed. Zaukos, a Bird.
 Zmirena, a Sea-fish. Smaragdus, an Emerauld._
 
 _Smilax_ is a very strong Herb, like the Plant
@@ -542,7 +542,7 @@ An Emerauld is a known Stone. Therefore
 if you give the Gut of an _Harpe_ to any one
 to eat, the Eater will be torn; for he will be
 insatiable. And if yon give the great Cut
-of it, which is called {G} or _Colon_, powdered
+of it, which is called _κωλέντερον_ or _Colon_, powdered
 in drink to any or roasted to eat,
 it will persectly cure the Colick. _For People
 troubled with the Quartane Ague and the Leprosie_:
@@ -565,10 +565,10 @@ put underneath: For this is Divine.
 
 
 ## LETTER VII. H.
-{G}, the Herb we call _Fryngo_. {G},
-??? _the Sun-Bird, or {G}, i. e having J??let
-Wings. {G}, S. emagines, Vulcane's Stone
-{G}, the Fish Delight, some call it Assidion, a
+_Ἠρύγγιος, the Herb we call Eryngo. [Ηλιακή](http://lsj.translatum.gr/wiki/%E1%BC%A1%CE%BB%CE%B9%CE%B1%CE%BA%CF%8C%CF%82),
+the Sun-Bird, or [Φοινικόπτερα](http://lsj.translatum.gr/wiki/%CF%86%CE%BF%CE%B9%CE%BD%CE%B9%CE%BA%CF%8C%CF%80%CF%84%CE%B5%CF%81%CE%BF%CF%82), i.e having scarlet
+Wings.[ Ἥφαιστος](http://lsj.translatum.gr/wiki/%E1%BC%AD%CF%86%CE%B1%CE%B9%CF%83%CF%84%CE%BF%CF%82), S. emagines, Vulcane's Stone
+[Ηδονή](http://lsj.translatum.gr/wiki/%E1%BC%A1%CE%B4%CE%BF%CE%BD%CE%AE), the Fish Delight, some call it Assidion, a
 kind of Anchovy._
 
 _Eryngo_ is an Herb like _Calamus_; it grows
