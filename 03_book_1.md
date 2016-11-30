@@ -567,7 +567,7 @@ put underneath: For this is Divine.
 ## LETTER VII. H.
 _Ἠρύγγιος, the Herb we call Eryngo. [Ηλιακή](http://lsj.translatum.gr/wiki/%E1%BC%A1%CE%BB%CE%B9%CE%B1%CE%BA%CF%8C%CF%82),
 the Sun-Bird, or [Φοινικόπτερα](http://lsj.translatum.gr/wiki/%CF%86%CE%BF%CE%B9%CE%BD%CE%B9%CE%BA%CF%8C%CF%80%CF%84%CE%B5%CF%81%CE%BF%CF%82), i.e having scarlet
-Wings.[ Ἥφαιστος](http://lsj.translatum.gr/wiki/%E1%BC%AD%CF%86%CE%B1%CE%B9%CF%83%CF%84%CE%BF%CF%82), S. emagines, Vulcane's Stone
+Wings.[ Ἥφαιστος](http://lsj.translatum.gr/wiki/%E1%BC%AD%CF%86%CE%B1%CE%B9%CF%83%CF%84%CE%BF%CF%82), S. emagines, Vulcane's Stone.
 [Ηδονή](http://lsj.translatum.gr/wiki/%E1%BC%A1%CE%B4%CE%BF%CE%BD%CE%AE), the Fish Delight, some call it Assidion, a
 kind of Anchovy._
 
@@ -588,7 +588,7 @@ and drunk with Water and Honey, it cures
 those those that are troubled with the Stone,
 and the Stone-colick, and the Strangury.
 And let them drink it for sixteen days, every
-Morning, in Bed: But if you heat {G}
+Morning, in Bed: But if you heat _φλοιώδες ροάς_ (?)
 (which is Pomgranate-Rind) with it, it will
 do more good. _Hedone_ is a Sea-fish, which
 is called _Aphydion_, being often eaten, it cures
@@ -611,7 +611,7 @@ that which gives Trouble is not good,
 but forces every Earth, beating Men with
 the Degree of Fortune, binding them in Necessities.
 A certain Saturnine King _Kiranis_
-{G}, turning and rolling circular upon
+_Κυλινδράτης_, turning and rolling circular upon
 the Centre, with uncorrupt, and never failing
 Changes, whirling all things from the
 _East_ to the _West_, in the seven Arctick, i. e.
@@ -631,7 +631,7 @@ declare to thee all things which thou bidst
 me. Heaven is Water and Fire, the Stars
 are visible, and unspeakable Darkness is above
 the Gods. And a Sphere rolling from
-_East_ to _Weft_. And that which moves all things
+_East_ to _West_. And that which moves all things
 in the Sphære with wakeful Winds, sets in the
 Sea. It brings Lightning, and dissolves the
 Air, it strikes with Thunder, and flashes out
@@ -655,7 +655,7 @@ those things that are in Heaven and in Earth,
 and what any one has in his Soul; and whatever
 things are done in Climates and Cities, and
 all future things to Men_. There is an Animal
-flying in the Air, which is called {G}, _upupa_,
+flying in the Air, which is called [_ἔποψ_](http://lsj.translatum.gr/wiki/%E1%BC%94%CF%80%CE%BF%CF%88), _upupa_,
 or Houp, of seven Colours, having a Crest on
 his Head, the height of two Fingers, which
 extends and contracts. And it is of four Colours,
@@ -677,7 +677,7 @@ any one has in his Soul, or whatever
 is done in Climates, and in Cities, and what
 will come to all Men. And this will be the
 Composition of the Honey; Of Honey ℔j,
-℥β. living Magnet powdered ℥ij . and tender
+℥β. living Magnet powdered ℥ij. and tender
 Stalks of the Herb Eryngo ℥vij. When these
 are bruised, make them up with the Honey,
 And you may have another Magnet, wherein
@@ -738,7 +738,7 @@ the Hairs of a _Phoca_, the Seal, which are between
 his Nose and his Mouth, and the
 green Jasper Stone, and the Heart and Liver
 of the Houp, and the Roots of the _Gorgon_
-of Eryngo, and the feed of {G}
+of Eryngo, and the feed of [_περιστερεών_](http://lsj.translatum.gr/wiki/%CF%80%CE%B5%CF%81%CE%B9%CF%83%CF%84%CE%B5%CF%81%CE%B5%CF%8E%CE%BD)
 i. e. upright Vervein, and the clean Blood of
 _Chrysanthemum_, i. e. the Juice of the Herb _Plumaria_
 or _Strechas_, and the extremity of the
@@ -777,7 +777,7 @@ Kirani _is perfect_.
 
 ## LETTER VIII. Θ.
 
-{G}, _Herba Dionysi, Ivy. Thyr, a Bird. Thyrsites a Stone. {G} a Fish_.
+_[θύρσος](http://lsj.translatum.gr/wiki/%CE%B8%CF%8D%CF%81%CF%83%CE%BF%CF%82), Herba Dionysi, Ivy. Thyr, a Bird. Thyrsites a Stone. [θύννος](http://lsj.translatum.gr/wiki/%CE%B8%CF%8D%CE%BD%CE%BD%CE%BF%CF%82) a Fish_.
 
 _Thyrsites_ or _Thyrsus_ the Herb of _Bacchus_, fruitful and profitable for all things. _Thyr_ is a Bird like the Hawk of the Sea, having a divine Efficacy. _Thyrsite_ is a Stone like to Coral. _Thynnus_, a Tuny, is a Sea-fish, and
 is eaten, like to a Whiting, which being
@@ -801,8 +801,17 @@ Lord! _Here Friends may drink, and go away
 merry and rejoycing_; If you put the right
 eye of a _Thynnus_ (or Tuny) or of an _Athynnus_
 in Wine, the Friends that are sate
-down will break into Joy without drinking, and they will thank you, as if they were merry. _For Discord at Feast_; And if you cut the Wing or the top of a Feather of the Bird _Thyr_ with a Sword that is all Iron, and put it into a Vessel of Wine, saying over it the Name of _Bacchus_, and when you have a mind, make them that are sate down spill it that they may shed blood and beat one another, and it will be so.
-_That you may be without Drunkenness, and for all favour and
+down will break into Joy without drinking,
+and they will thank you, as if they were
+merry. _For Discord at Feast_; And if you
+cut the Wing or the top of a Feather of the
+Bird _Thyr_ with a Sword that is all Iron, and
+put it into a Vessel of Wine, saying over it
+the Name of _Bacchus_, and when you have a
+mind, make them that are sate down spill it,
+that they may shed blood and beat one another,
+and it will be so. _That you may be
+without Drunkenness, and for all favour and
 health_; In the Stone _Thyrsites_ engrave the
 Bird _Thyr_ and _Bacchus_ holding the Bird, and
 under the Stone enclose the Root of the Herb,
@@ -817,13 +826,13 @@ of _Bacchus_. For so sayes _Harpocration_.
 
 ## LETTER IX. I.
 
-{G}, i.e. a Willow, a fruitless Tree, j]{G},
-A Jasper Stone, green. {G}, a Kite, a Bird.
-{G}, a Fish.
+_Ιτία, i.e. a Willow, a fruitless Tree. Jaspis,
+A Jasper Stone, green. [Ικτίν](http://lsj.translatum.gr/wiki/%E1%BC%B0%CE%BA%CF%84%CE%AF%CE%BD), a Kite, a Bird.
+[Ἰούλίς](http://lsj.translatum.gr/wiki/%E1%BC%B0%CE%BF%CF%85%CE%BB%CE%AF%CF%82), a Fish._
 
 The Willow is a barren Tree. The Jasper
 is a known Stone. The Kite is a Bird known
-to all men. The {G} is a party-coloured
+to all men. The _Iülis_ is a party-coloured
 Sea-fish, which is easily found. Bruise, I say,
 the green Leaves of Willow with a little Salt,
 and apply it to the aking Spleen, and the
@@ -845,10 +854,10 @@ in the Breast.
 
 ## LETTER X. K.
 
-{G}, {G}, _an Herb, a Stone, a
+_Κυναίδιος, Kynædius, an Herb, a Stone, a
 Bird, and a Fish so called._
 
-_Kynædius_ is an Herb, which is also {G}
+_Kynædius_ is an Herb, which is also [περιστερεών](http://lsj.translatum.gr/wiki/%CF%80%CE%B5%CF%81%CE%B9%CF%83%CF%84%CE%B5%CF%81%CE%B5%CF%8E%CE%BD)
 _Meretricis_, Whores Vervein; _centum capita_
 {G}, the hundred heads of _Venus_. _Kynædius_
 is a Bird, which is called _Iynx_, as
