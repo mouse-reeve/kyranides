@@ -1071,7 +1071,7 @@ good for the Pin and Web in the Eyes.
 
 ## LETTER XII. M.
 
-{G}, _a Mulberry tree. Migrios, a Bird,
+_[Μορέα](http://lsj.translatum.gr/wiki/%CE%BC%CE%BF%CF%81%CE%AD%CE%B1), a Mulberry tree. Migrios, a Bird,
 Mydicus, a Stone. Mormyros, a Fish known
 to all._
 
@@ -1116,9 +1116,9 @@ they call Anacardia; those indeed that look
 upwards cure inferior Fluxes in so many
 dayes, and those that look downward, cure
 the superior. And this is that for the Flux
-of Blood, which they call {G}, or {}.
+of Blood, which they call άνακαρδία, or κατωκαρδία.
 _For the Enteridæ, which are called
-Exophanæ, or {G}, i. e._ the Hæmorrhoids.
+Exophanæ_, or [έξοχάδες](http://lsj.translatum.gr/wiki/%E1%BC%90%CE%BE%CE%BF%CF%87%CE%AC%CE%B4%CE%B5%CF%82), _i. e._ the Hæmorrhoids.
 Indeed many false Sophisters are mistaken.
 But for the _Enteridæ_, which are called _Hæmorrhoides_ and Exochades, a Medicine is made.
 It is of the unripe Juice of the Mulberry ℥ij.
@@ -1127,10 +1127,31 @@ seven Crows wings with a little Wine, mix it
 with a Feather of the fame wings, till it is
 soft and tough like Glew. For the inner
 _Hæmorrhoids_ make Suppositories or Clysters,
-and for the _Exochades_ or outer , make inunctions.
+and for the _Exochades_ or outer, make inunctions.
 And in the Name of GOD use this
 Ligature. In a little Stone engrave the Fish
-_Mormyrus_, and enclose it in an Iron Box, and put under it a Bud of Mulberry-tree looking upward, and carry it. _It will be good for Hæmorrhoids and in the Arse. For spitting of Blood, and Bleeding at the Nose, and and Diseases above_; A Purge also is prepared of the Root of the Mulberry-tree. O Mulberry-tree! a potent plant, not created for a few things! For thy Juice mixt equally with the Juice of the root of the Herb _Stratiotes_ of _Persia_, _i. e._ Savory, and in like manner the Juice of Tithymal and Scammony equally, mix them all equally, and boyl thrice as much Honey to the thickness of an Oyntment, and when you have taken it off, put it up in a Glass Bottle, and give of it one fasting and that keeps an exact Diet. But if you give above the bigness of a Bean, he that takes it will be seized with a Vomiting and Looseness, and will not live a day. Give nothing superfluous in Meat or Drink, but give to every one according to the strength of the Taker. 
+_Mormyrus_, and enclose it in an Iron Box, and
+put under it a Bud of Mulberry-tree looking
+upward, and carry it. _It will be good for
+Hæmorrhoids and in the Arse. For spitting of
+Blood, and Bleeding at the Nose, and any Diseases
+above_; A Purge also is prepared of the
+Root of the Mulberry-tree. O Mulberry-tree!
+a potent Plant, not created for a few things!
+For thy Juice mixt equally with the Juice
+of the root of the Herb _Stratiotes_ of _Persia_,
+_i. e._ Savory, and in like manner the Juice of
+Tithymal and Scammony equally, mix them
+all equally, and boyl thrice as much Honey,
+to the thickness of an Oyntment, and when
+you have taken it off, put it up in a Glass
+Bottle, and give of it one fasting and that
+keeps an exact Diet. But if you give above
+the bigness of a Bean, he that takes it will
+be seized with a Vomiting and Looseness, and
+will not live a day. Give nothing superfluous
+in Meat or Drink, but give to every one
+according to the strength of the Taker.
 
 
 
