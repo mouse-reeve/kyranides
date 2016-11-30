@@ -468,10 +468,11 @@ all Men.
 
 ## LETTER V. E.
 
-{G}, _the Herb Rocket. Enlui, aëdon,
-a Nightingale. {G}, a Sea-Urchin. Enanthus, A Stone._
+_Εὔζωμον, the Herb Rocket. Enlui, aëdon,
+a Nightingale. 'Εχῖνος, a Sea-Urchin. Enanthus,
+a Stone._
 
-_Fuzomen_ is the herb Rocket, which is eaten
+_Euzomon_ is the herb Rocket, which is eaten
 among pot-herbs, and known to all men.
 _Echinus_, the Sea-Urchin is also known to all.
 _Enlui_ is a Nightingale, known well enough.
