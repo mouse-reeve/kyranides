@@ -8,11 +8,11 @@ BOOK I.
 
 ## LETTER I. A.
 
-_'Αμπελος λευκή the white Vine. 'αετός, the
+_[Άμπελος λευκή](http://lsj.translatum.gr/wiki/%CE%B2%CF%81%CF%85%CF%89%CE%BD%CE%AF%CE%B1) the white Vine. [ἀετός](http://lsj.translatum.gr/wiki/%E1%BC%80%CE%B5%CF%84%CF%8C%CF%82), the
 Eagle, a Bird. 'Aετίτης, the Eagle-stone.
 Aετός, the Eagle, a Fish without Scales._
 
-_'Αμπελος λευκή_ is a most holy and admirable
+_Άμπελος λευκή_ is a most holy and admirable
 Herb; it is also divine, and is called _βρυωνία,
 Bryony_. The Male-Eagle is King of all Birds.
 The Eagle-stone is with Child and Rattles. The
@@ -170,7 +170,8 @@ Caution._
 And there are two sorts of it. The first is
 called the white Vine, which some call Bryony,
 others Snake-Grape; others Celidonia, others
-_μίλητον_ others _ψίλωθρον_, others _αρχισωστικη_,
+_[μίλητον](http://lsj.translatum.gr/wiki/%CE%B5%E1%BC%B0%CF%83%CE%AC%CF%86%CE%B9%CE%BE%CE%B9%CF%82)_ others
+_[ψίλωθρον](http://lsj.translatum.gr/wiki/%CF%88%CE%AF%CE%BB%CF%89%CE%B8%CF%81%CE%BF%CE%BD)_, others _αρχισωστικη_,
 others _Kethedron_. The Buds, and Leaves,
 and Claspers of this are like the Domestick
 Vine, but they are thicker, and implicated
@@ -179,7 +180,7 @@ Claspers; and it has a red Grape-like Fruit,
 wherewith Hides have their Hair fetcht off,
 or are prepared. And the second sort of it
 is called the _black Vine_, which they also call
-Bryony; and some _χειρώνιον_, having Leaves
+Bryony; and some _[χειρώνιον](http://lsj.translatum.gr/wiki/%CE%A7%CE%B5%CE%B9%CF%81%CF%89%CE%BD%CE%B9%CE%AC%CF%82)_, having Leaves
 like Ivy, but the great ones like Bind-weed,
 but greater; this also applies itself to, and
 takes hold of Trees with its Claspers. And its
@@ -264,7 +265,7 @@ many other things; all which I will not declare.
 
 ## LETTER II. Γ.
 
-_βοροσίτης_ is a Bird which is called _Κορώνη_
+_βοροσίτης_ is a Bird which is called _[Κορώνη](http://lsj.translatum.gr/wiki/%CE%BA%CE%BF%CF%81%CF%8E%CE%BD%CE%B7)_
 i. e. _a Crow_, a common Animal, and known
 to all People, living to five hundred years
 of age. _Βήρυλλιο_ is a precious Stone, a Beril;
@@ -303,8 +304,9 @@ and conjugal Love.
 
 ## LETTER III. Γ.
 
-_Γλυκυσίδη, the Herb Pæony. Γλαύξ a sort
-of Owl. Γνάνθιος, a Stone. Γλαῦκος, a Sea-fish
+_[Γλυκυσίδη](http://lsj.translatum.gr/wiki/%CE%B3%CE%BB%CF%85%CE%BA%CF%85%CF%83%CE%AF%CE%B4%CE%B7), the Herb Pæony.
+[Γλαύξ](http://lsj.translatum.gr/wiki/%CE%B3%CE%BB%CE%B1%CF%8D%CE%BE) a sort
+of Owl. Γνάνθιος, a Stone. [Γλαῦκος](http://lsj.translatum.gr/wiki/%CE%B3%CE%BB%CE%B1%E1%BF%A6%CE%BA%CE%BF%CF%82), a Sea-fish
 known to all men._
 
 _Glykiside_ is the Herb _Pæony_; and it is called
@@ -366,7 +368,7 @@ shew true Visions.
 
 ## LETTER IV. Δ.
 
-_Draconthea, the Herb Dragons. Δενδροκολάπτης,
+_Draconthea, the Herb Dragons. [Δενδροκολάπτης](http://lsj.translatum.gr/wiki/%CE%B4%CE%B5%CE%BD%CE%B4%CF%81%CE%BF%CE%BA%CE%BF%CE%BB%CE%AC%CF%80%CF%84%CE%B7%CF%82),
 the Bird Woodpecker. Draco, a Fish. Dendritis, a Tree stone_.
 
 _Draconthea_ is an Herb, having Seed like
@@ -403,7 +405,7 @@ but those things which are done, are from
 the little _Draconthea_, which is two hand-breadths
 high, and it is as the Fish or the
 Serpent, and we put this for the other. _For
-a λευκοφλεγματία, or a Flesh Dropsie, and an
+a [λευκοφλεγματία](http://lsj.translatum.gr/wiki/%CE%BB%CE%B5%CF%85%CE%BA%CE%BF%CF%86%CE%BB%CE%B5%CE%B3%CE%BC%CE%B1%CF%84%CE%AF%CE%B1), or a Flesh Dropsie, and an
 έλεφαντία, or Leprosie of the_ Arabians, _and
 any Leprosie_. For a pain in the Head, and
 the beginning of an _Elephantia_ and _Leprosie_,
@@ -468,8 +470,8 @@ all Men.
 
 ## LETTER V. E.
 
-_Εὔζωμον, the Herb Rocket. Enlui, aëdon,
-a Nightingale. 'Εχῖνος, a Sea-Urchin. Enanthus,
+_[Εὔζωμον](http://lsj.translatum.gr/wiki/%CE%B5%E1%BD%94%CE%B6%CF%89%CE%BC%CE%BF%CE%BD), the Herb Rocket. Enlui, aëdon,
+a Nightingale. [Έχῖνος](http://lsj.translatum.gr/wiki/%E1%BC%90%CF%87%E1%BF%96%CE%BD%CE%BF%CF%82), a Sea-Urchin. Enanthus,
 a Stone._
 
 _Euzomon_ is the herb Rocket, which is eaten
@@ -1157,13 +1159,42 @@ according to the strength of the Taker.
 
 ## LETTER XIII. N.
 
-{G}, _an Herb. Nancrates, a Fish. {G},
-Bird. Nemesites, a Stone._
+_[Νεκυία](http://lsj.translatum.gr/wiki/%CE%BD%CE%AD%CE%BA%CF%85%CE%B9%CE%B1), an Herb. Naucrates, a Fish.
+[Νῆττα](http://lsj.translatum.gr/wiki/%CE%BD%E1%BF%86%CF%84%CF%84%CE%B1), a Bird. Nemesites, a Stone._
 
-{G}, is the herb _Florinus_, i. e. _Tapsus
-Mormjrits, and enclose it in an Iron Box, and Barbatus_ or _Mullein_: There are seven sorts of this Herb. It differs therefore as much as the Leaves, which ascend a cubit above the Earth, They burn the Leaves of this in Lamps for Wieks, For they have them in {G} (_i. e._ in Necromancy) which is performed in a Shell., which they do to this day. Wherefore they call this herb _Nekya_. _For {G}_ signifies _dead_. {G}, i. e. a Duck, is a bird swimming in Rivers, about the bigness of a Hen. {G} is the Sea-fish {G}, or _Remora, i. e._ Stop-ship; if this stick a Ship under Sail, it will not suffer the Ship stir, it would break first, or a Tree might sooner be pluckt up by the roots. _For the Gout_; This whole Fish boyled in Oyl, to the thickness of Wax, then the Oyl strained out, and boiled to the thickness of a Plaster, this applies Plasterwise cures the Gout. _Nemesites_ is a Stone from the Altar of _Nemesit_, a Goddess of the _Athenians_, It is an excellent stone. Let _Nemesit_ therefore be engraven on that stone, having one of her Feet upon a Wheel. Her Favour is like a Virgin's, holding in her left hand a _Pirrhis_, _i. e._ an Elne or Measure, and in her right hand a Rod, and with one foot treading upon an Oxe. And enclose under it the stone _Acronius_, and a little of the Mulberry-tree. _If therefore you shew that Finger to one possessed, the
+Νεκυία is the herb _Florinus_, i. e. _Tapsus
+Barbatus_ or _Mullein_: There are seven sorts of
+this Herb. It differs therefore as much as the
+Leaves, which ascend a cubit above the Earth,
+They burn the Leaves of this in Lamps for
+Wieks. For they have them in {G}
+(_i. e._ in Necromancy) which is performed
+in a Shell, which they do to this
+day. Wherefore they call this herb _Nekya_.
+_For {G}_ signifies _dead_. {G}, i. e. a Duck,
+is a bird swimming in Rivers, about the bigness
+of a Hen. {G} is the Sea-fish {G},
+or _Remora, i. e._ Stop-ship; if this stick to a
+Ship under Sail, it will not suffer the Ship to
+stir, it would break first, or a Tree might
+sooner be pluckt up by the roots. _For the
+Gout_; This whole Fish boyled in Oyl, to
+the thickness of Wax, then the Oyl strained
+out, and boiled to the thickness of a Plaster,
+this applied Plasterwise cures the Gout. _Nemesites_
+is a Stone from the Altar of _Nemesia_,
+a Goddess of the _Athenians_, It is an excellent
+stone. Let _Nemesis_ therefore be engraven
+on that stone, having one of her
+Feet upon a Wheel. Her Favour is like a
+Virgin's, holding in her left hand a _Pirrhis_,
+_i. e._ an Elne or Measure, and in her right hand
+a Rod, and with one foot treading upon an
+Oxe. And enclose under it the stone _Acronius_,
+and a little of the Mulberry-tree. _If therefore
+you shew that Finger to one possessed, the
 Devil will immediately confess himself and be
-gone._ _It is good also for Phantasms, and Dreams
+gone. It is good also for Phantasms, and Dreams
 of Devils, and for Childrens Frights, and
 Nightly Fears._ But the Wearer must abstain
 from all polluted and unclean things. _For this
