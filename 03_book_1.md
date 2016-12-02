@@ -1349,13 +1349,13 @@ Eye-lids_ there happen _Itching, Nits, Lice, falling
 of the Hair, entangling of the Hair, Baldness,
 Grando, Hordeolum, Warts, Purblindness, thickness
 of the Eye-lids, here_ are eleven. About
-the {G}, _or skin of the Eye-lids, Roughness,
+the σπισκύνιον, _or skin of the Eye-lids, Roughness,
 Watriness, Ulcers, Hairiness,_ here are four.
 About the Corners, _scabbiness, dryness, Agethinos,
-Adustion, {G}, serix, fretting,
+Adustion, αἰγιλωπία, [αἰγίλωψ](http://lsj.translatum.gr/wiki/%CE%B1%E1%BC%B0%CE%B3%CE%AF%CE%BB%CF%89%CF%88), serix, fretting,
 eating away,_ here are nine. _About the Ball
-of the Eye, Pterygium, Albula, {G}, {G}, {G};
-{G}, {G},
+of the Eye, Pterygium, Albula, [ῥῆξις](http://lsj.translatum.gr/wiki/%E1%BF%A5%E1%BF%86%CE%BE%CE%B9%CF%82), μυκέφαλον,
+σαφύλωμα, [τάραξις](http://lsj.translatum.gr/wiki/%CF%84%CE%AC%CF%81%CE%B1%CE%BE%CE%B9%CF%82), [αἱμάλωψ](http://lsj.translatum.gr/wiki/%CE%B1%E1%BC%B1%CE%BC%CE%AC%CE%BB%CF%89%CF%88), {G}
 uva visus,_ here are nine. About _the Pupil,
 or Sight, there are nebula or nubes, hebetatio,
 latitudo pupille, effusio, effectio, defectio,
