@@ -865,12 +865,12 @@ Bird, and a Fish so called._
 
 _Kynædius_ is an Herb, which is also [περιστερεών](http://lsj.translatum.gr/wiki/%CF%80%CE%B5%CF%81%CE%B9%CF%83%CF%84%CE%B5%CF%81%CE%B5%CF%8E%CE%BD)
 _Meretricis_, Whores Vervein; _centum capita_
-{G}, the hundred heads of _Venus_. _Kynædius_
+[Άφροδίτης](http://lsj.translatum.gr/wiki/%E1%BC%88%CF%86%CF%81%CE%BF%CE%B4%CE%AF%CF%84%CE%B7), the hundred heads of _Venus_. _Kynædius_
 is a Bird, which is called _Iynx_, as
 _Kiranus_ says in the Verse of Theocritus; for
 Example's sake:
 
-{G}.
+[῏Ιυγξ, ἕλκε τὺ τῆνον ἐμὸν ποτὶ δῶμα τὸν ἄνδρα.](http://www.perseus.tufts.edu/hopper/text?doc=Perseus%3Atext%3A1999.01.0228%3Atext%3DId.%3Apoem%3D2)
 Per te, Iynx, meus ille domum vir quæso
 trahatur!
 _Pray_ Iynx! _Fetch my Husband home again!_
