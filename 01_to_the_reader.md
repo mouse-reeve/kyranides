@@ -38,7 +38,7 @@ of _Tertullian_, who would make him to mean
 _Harpocration_ that wrote the _Lexicon_, comes
 to one Commentator, whom he thinks in the
 right. These are the Words of _Maussacus_.
-> "_Jacobus Pamelius_, the last Commentator upon
+"_Jacobus Pamelius_, the last Commentator upon
 _Tertullian_, has taken another, and a quite
 new course: For he thinks that Harpocration,
 whom Tertullian mentions, is the same
@@ -218,9 +218,9 @@ _Suchonas_; but _Gesner_ and the most
 call him _Cremomensit_.
 
 This Latin Translation has been quoted by many at the second hand. But I never met with any that saw so much as a Manuscript of it, till Barthius (as we told you) saw it in Dr. Ellenberger's Hand, who kept it as a pre cious Jewel, and a great Rarity. He had wrote in the Book with his own Hand, That he re ceived this Book in Manuscript, as a singular Boom, from the mºst Illusirious Lady, the Lady E LEO NOR,Landgraves of Hesse,descended from the Family of the Dukes of Wirtemberg, at Darmstad, Anno M. DC. IX. This Book
-- - had
-To the Reader.
-had,about an hundred Years before that, been in the possession of oneWaltherus de VIELBEL, Praposttu, S. L. by whose Donation it belong ed to David Wielbel, Anno M. D.XXX. Af
+
+
+had ,about an hundred Years before that, been in the possession of oneWaltherus de VIELBEL, Praposttu, S. L. by whose Donation it belong ed to David Wielbel, Anno M. D.XXX. Af
 ter Dr. Ellenberger's Death, this Treasure fell to his Son Christian William Ellenberger, who being a Soldier, bestowed it upon a Physician, his Acquaintance and Friend. This Physici an printed it privately 3 for neither his own, nor the Printer's, nor the place's Name is printed. But he says, he was forced to leave the University, and to retire into the Coun- trey, by reason of the Plague, of which the Famous Sennertus died, and he only took this curious Manuscript with him, and in his Re
 tirement fitted it for the Press. It bears
 Date M.D.C.XXXVIII. So that it seems, but a few Copies were printed, and those private ly distributed; one of which with some diffi culty I procured. As for the Book, it seems to be one of that
