@@ -117,7 +117,7 @@ Mouth for three or five or seven days, and
 your Teeth will never ake. If one will diligently
 consider, the Vine will cure all Diseases
 from the Head to the Feet. This Herb
-is called _THEOdorica_, i. e. _Given of GOD_.
+is called _THEOdorica_, i.e. _Given of GOD_.
 _Kiranus_ and _Harpocration_ do thus far agree.
 
 Then _Kiranus_ brings something new, and
@@ -228,7 +228,7 @@ the Grape, the Grape makes heavenly
 Wine! Before you have said this, send the
 Cup, Bowl or Flagon about, of which all do
 drink, and they break out in Joy, no man
-complaining or asking. For _ἐνοχία_ (?), i. e. _Exultation_.
+complaining or asking. For _ἐνοχία_ (?), i.e. _Exultation_.
 The Juice of the Grape drunk
 causes great Joy. Plant it in every place.
 For neither the Solemnities of the Gods, nor
@@ -266,12 +266,12 @@ many other things; all which I will not declare.
 ## LETTER II. Γ.
 
 _βοροσίτης_ is a Bird which is called _[Κορώνη](http://lsj.translatum.gr/wiki/%CE%BA%CE%BF%CF%81%CF%8E%CE%BD%CE%B7)_
-i. e. _a Crow_, a common Animal, and known
+i.e. _a Crow_, a common Animal, and known
 to all People, living to five hundred years
 of age. _Βήρυλλιο_ is a precious Stone, a Beril;
-which is called _πάνζωον_ i. e. _All Life_. _Βίασας_,
+which is called _πάνζωον_ i.e. _All Life_. _Βίασας_,
 is a _Sea-Lobster_, so called from its likeness to
-_Βησαλα_, i. e. red Tiles. _Binthi_, i.e. The Herb
+_Βησαλα_, i.e. red Tiles. _Binthi_, i.e. The Herb
 _Savine_, known to all People.
 
 _For Dyspnoïck, Orthopnoïck and Asthmatick
@@ -616,7 +616,7 @@ A certain Saturnine King _Kiranis_
 _Κυλινδράτης_, turning and rolling circular upon
 the Centre, with uncorrupt, and never-failing
 Changes, whirling all things from the
-_East_ to the _West_, in the seven Arctick, i. e.
+_East_ to the _West_, in the seven Arctick, i.e.
 _North_, Stars, holding and moving all strange
 things. Soul, be thou content and sufficient
 in those things which thou actest in failing
@@ -683,7 +683,7 @@ Composition of the Honey; Of Honey ℔j,
 Stalks of the Herb Eryngo ℥vij. When these
 are bruised, make them up with the Honey,
 And you may have another Magnet, wherein
-a _Cucubas_, i. e. an Houp is engraven, all which
+a _Cucubas_, i.e. an Houp is engraven, all which
 you must dip in the Composition of the Honey.
 And when you would foreknow any
 thing, first taste it with the Finger, and put
@@ -708,7 +708,7 @@ Very many false Sophisters are mistaken in the
 Understanding of the immortal Soul, but it discerns
 it self Why is it, that the Body is at rest
 in Bed, and the Soul is conversant in its proper
-place, i. e. in the Air, whence also we took
+place, i.e. in the Air, whence also we took
 this Soul, and sees what things are done in other
 Climates? Many times also there is a sympathy,
 as between the Mother and the Child, and
@@ -741,8 +741,8 @@ his Nose and his Mouth, and the
 green Jasper Stone, and the Heart and Liver
 of the Houp, and the Roots of the _Gorgon_
 of Eryngo, and the feed of [_περιστερεών_](http://lsj.translatum.gr/wiki/%CF%80%CE%B5%CF%81%CE%B9%CF%83%CF%84%CE%B5%CF%81%CE%B5%CF%8E%CE%BD)
-i. e. upright Vervein, and the clean Blood of
-_Chrysanthemum_, i. e. the Juice of the Herb _Plumaria_
+i.e. upright Vervein, and the clean Blood of
+_Chrysanthemum_, i.e. the Juice of the Herb _Plumaria_
 or _Strechas_, and the extremity of the
 heart of the Seal, and moreover the Crest of
 a Houp's head also; it were better if you
@@ -892,10 +892,10 @@ hereafter. And they are in the head. And it
 has also another Stone in the third Joynt of
 the back towards the Tail, which is most
 powerful, and is requisite in the Spell or Ligature
-of [Ἀφροδίτη](http://lsj.translatum.gr/wiki/%E1%BC%88%CF%86%CF%81%CE%BF%CE%B4%CE%AF%CF%84%CE%B7), i. e. _Venus_. The Stone
+of [Ἀφροδίτη](http://lsj.translatum.gr/wiki/%E1%BC%88%CF%86%CF%81%CE%BF%CE%B4%CE%AF%CF%84%CE%B7), i.e. _Venus_. The Stone
 _Kynædius_ was unknown, because it is exceeding
 scarce, and is called _Opisianus_ (όψίμοι)
-i. e. late or slow. For it is Saturnine. This
+i.e. late or slow. For it is Saturnine. This
 Stone is double or twofold: One is obscure
 and black; the other is black indeed, but
 bright and shining like Glass. This is that
@@ -912,7 +912,7 @@ Man, he will not erect to coition for seven
 dayes. _That a Cock may not tread an Hen_;
 Give it to a Cock in Bran or Paste, and he
 will not tread a Hen. _That a man for one
-day may be Κύναιδοι,_ i. e. _a Fornicator_; That
+day may be Κύναιδοι,_ i.e. _a Fornicator_; That
 which is in the Fish _Kynædius_, in the third
 Joynt of the backbone, if you give it in
 meat or drink, a man will be a manifest Fornicator
@@ -948,7 +948,7 @@ Head-ach. _For Hepatick Persons_; And
 its Liver boyled with Salt and Water cures
 Hepatick Persons. _Of Goddess_ Venus _her Girdle_;
 The kind of _Venus_. The first and strong
-_Cestus_, i. e. Girdle, mollifies the hearts
+_Cestus_, i.e. Girdle, mollifies the hearts
 of Men, and of all Animals, and the Natures
 of the Males especially, so that the touching
 or carrying of this makes them soft and effeminate.
@@ -1002,8 +1002,8 @@ Coach, and a Moon with two Bulls, each stone
 having each: And other two stones on each
 side, having _Mercury_ engraven, with the rod
 of a Scepter in his right hand: And other
-two _Anankite_, i. e. true Unions or white Pearl,
-having on each side Erachmites, i. e. reins, the
+two _Anankite_, i.e. true Unions or white Pearl,
+having on each side Erachmites, i.e. reins, the
 Goddess _Nemesis_ having her foot upon a
 wheel, and holding a Rod. And other two
 immaculate Pearls, being on each side not
@@ -1013,7 +1013,7 @@ and so sewed in a ligature, that they may
 not be seen by the Crowd. And there is a
 twofold holy ligature, and it follows: Another
 Stone may be carried, hung about the
-neck, which is called [Σεληνίτης](http://lsj.translatum.gr/wiki/%CF%83%CE%B5%CE%BB%CE%B7%CE%BD%CE%AF%CF%84%CE%B7%CF%82) i. e. Lunar
+neck, which is called [Σεληνίτης](http://lsj.translatum.gr/wiki/%CF%83%CE%B5%CE%BB%CE%B7%CE%BD%CE%AF%CF%84%CE%B7%CF%82) i.e. Lunar
 Stone, in which the Encrease of the Moon
 and its Divinity appears. And let it have a
 Moon engraven, and underneath the Stone
@@ -1037,7 +1037,7 @@ it. Wherefore give this Divine Mystery to no man.
 ## LETTER XI. Λ.
 
 _Λίβανοι, the Frankincense tree. Lyngurius,
-a Stone. Lynx, a Vulture. Λάβραξ, a Fish called
+a Stone. Lynx, a Vulture. [Λάβραξ](http://lsj.translatum.gr/wiki/%CE%BB%CE%AC%CE%B2%CF%81%CE%B1%CE%BE), a Fish called
 a Bass._
 
 Libanus is a shrubby tree, whole Gum
@@ -1047,11 +1047,11 @@ called. But some say it is the Gum of the
 Poplar tree; however it is good. _Lynx_ is a
 Bird, which is called Gyps or a Vulture, a
 very strong Creature. _Labrax_ is a Sea-fish
-called a _Bass_, known to all. _Of these (???)
-Eye-Salve is made for all dimness of the Eyes
+called a _Bass_, known to all. _Of these a soft
+Eye-Salve is made for all dimness of the Eyes,
 so that in three days it makes the Sight sharp. It
 is good for the beginning of a Suffusion, a Cataract,
-turning back of the Eye-lid, Roughness
+turning back of the Eye-lid, Roughness,
 dilatation of the Pupilla, Owl-fightedness, Watriness,
 itchng [sic], Driness, falling away of the
 hairs of the Eye-lids, eating away of the Corners
@@ -1111,7 +1111,7 @@ touch a Woman that is troubled with a flux
 of Blood from the Matrix or Arse, the Flux
 will stop in three days. _For such as spit
 Blood_; But if a man pluck a Bud that looks
-downward, as before was said, _i. e._ standing,
+downward, as before was said, _i.e._ standing,
 and shall tie it up, he will stop spitting of
 Blood in three dayes. These are the things
 they call Anacardia; those indeed that look
@@ -1120,7 +1120,7 @@ dayes, and those that look downward, cure
 the superior. And this is that for the Flux
 of Blood, which they call άνακαρδία, or κατωκαρδία.
 _For the Enteridæ, which are called
-Exophanæ_, or [έξοχάδες](http://lsj.translatum.gr/wiki/%E1%BC%90%CE%BE%CE%BF%CF%87%CE%AC%CE%B4%CE%B5%CF%82), _i. e._ the Hæmorrhoids.
+Exophanæ_, or [έξοχάδες](http://lsj.translatum.gr/wiki/%E1%BC%90%CE%BE%CE%BF%CF%87%CE%AC%CE%B4%CE%B5%CF%82), _i.e._ the Hæmorrhoids.
 Indeed many false Sophisters are mistaken.
 But for the _Enteridæ_, which are called _Hæmorrhoides_ and Exochades, a Medicine is made.
 It is of the unripe Juice of the Mulberry ℥ij.
@@ -1142,7 +1142,7 @@ Root of the Mulberry-tree. O Mulberry-tree!
 a potent Plant, not created for a few things!
 For thy Juice mixt equally with the Juice
 of the root of the Herb _Stratiotes_ of _Persia_,
-_i. e._ Savory, and in like manner the Juice of
+_i.e._ Savory, and in like manner the Juice of
 Tithymal and Scammony equally, mix them
 all equally, and boyl thrice as much Honey,
 to the thickness of an Oyntment, and when
@@ -1162,19 +1162,19 @@ according to the strength of the Taker.
 _[Νεκυία](http://lsj.translatum.gr/wiki/%CE%BD%CE%AD%CE%BA%CF%85%CE%B9%CE%B1), an Herb. Naucrates, a Fish.
 [Νῆττα](http://lsj.translatum.gr/wiki/%CE%BD%E1%BF%86%CF%84%CF%84%CE%B1), a Bird. Nemesites, a Stone._
 
-Νεκυία is the herb _Florinus_, i. e. _Tapsus
+Νεκυία is the herb _Florinus_, i.e. _Tapsus
 Barbatus_ or _Mullein_: There are seven sorts of
 this Herb. It differs therefore as much as the
 Leaves, which ascend a cubit above the Earth,
 They burn the Leaves of this in Lamps for
 Wieks. For they have them in {G}
-(_i. e._ in Necromancy) which is performed
+(_i.e._ in Necromancy) which is performed
 in a Shell, which they do to this
 day. Wherefore they call this herb _Nekya_.
-_For {G}_ signifies _dead_. {G}, i. e. a Duck,
+_For {G}_ signifies _dead_. {G}, i.e. a Duck,
 is a bird swimming in Rivers, about the bigness
 of a Hen. {G} is the Sea-fish {G},
-or _Remora, i. e._ Stop-ship; if this stick to a
+or _Remora, i.e._ Stop-ship; if this stick to a
 Ship under Sail, it will not suffer the Ship to
 stir, it would break first, or a Tree might
 sooner be pluckt up by the roots. _For the
@@ -1188,7 +1188,7 @@ stone. Let _Nemesis_ therefore be engraven
 on that stone, having one of her
 Feet upon a Wheel. Her Favour is like a
 Virgin's, holding in her left hand a _Pirrhis_,
-_i. e._ an Elne or Measure, and in her right hand
+_i.e._ an Elne or Measure, and in her right hand
 a Rod, and with one foot treading upon an
 Oxe. And enclose under it the stone _Acronius_,
 and a little of the Mulberry-tree. _If therefore
@@ -1274,10 +1274,10 @@ _{G}, an Herb. {G}, a Bird. Orphos
 a Fish. {G}, a Stone known to all._
 
 _Onothyris_ or _Onothyrsis_ is an Herb, some
-call it {G} _i. e._ Asses Mallow, this is a
+call it {G} _i.e._ Asses Mallow, this is a
 Rose, of which they make Garlands; It has
 Leaves like domestick Mallow. This by the
-Greeks is called {G} i. e. _Malvaviscus_
+Greeks is called {G} i.e. _Malvaviscus_
 Marsh-Mallow. _Ortyx_, a Quail, is a Bird known to all,
 yet its Nature is not easily known; for there
 is one thing concerning this, unknown. _For
@@ -1303,7 +1303,7 @@ of the Matrix, and Swellings, and Ulcers,
 and Itchings, and all other Womens Diseases in
 the_ Matrix. And it is put into Medicines for
 the Kidneys. And it is good for _Cheironia,
-i. e._ the King's Evil. The Eyes of a Quail,
+i.e._ the King's Evil. The Eyes of a Quail,
 with the Root of the Herb hung about one
 diminish a Quotidian and Quartan cold Fire
 in the wain of the Moon. _For Illusion;_ Dissolve
@@ -1445,8 +1445,8 @@ you strew it on the virile Member, anointed
 with Honey, the Woman will be debilitated
 beyond measure. And if the Woman be so anointed,
 the Intenseness of the Act will be great: For it dries up Nature, and causes Conception, and makes barren women conceive. And it is prepared thus: of _Satyrion_ Seed ℥ij.
-and Seef of Pepper ℥j. _Alumen scissile_ ℥j. (_but according to another_ Book) ℥ij. _Stypleria rotunda, i. e._ common Allum ℥ij. _Aromate aridis_ ℥ij. Lay it up in a Vessel, and communicate it to no man. The Preparation, or Confection of _Aromate aridis_ is thus, _Costue_ ℥ij. Spikenard ℥β. (_in another Book_, ℥ij.) _Carpoblasamum_ ℥ iij. _Amomum_ ℥β. (in another place ℥v.) _Cloves_ ℥ij. _Cassia_ ℥ij. _Storax_ ℥v. _Opabalsamum_ ℥j. Roses exunglated ℥iiij. Musk ℈β.
-Powder the dry things very finely, and sift them well. Then rub the _Storax_ a long time apart, and hten with the beaten Roses and Balsam, and all mixt together, make Trochises: Afterwards suffumigate them, and dry them in a ???, _thyinum_ of Tree-Moss and _Storax_, and Mastich (?), and Quails Claws, and _Costus_, which being dried, put them up in a Glass Vessel, and when you have occasion for Conception, powder to Trochises. And this is _Confectio aromatic sicia(?)_. And the Bird Estrich has an _Echidirum_, which is called _suffivium aridum_, the inner Skin of the Gizzard: This powdered, and given in Drink secretly, _procures Love and Luxury_. And the Stone of the _Echinus_, i. e. of the Gizzard of an Estrich, with one Grain of _Satryion_,
+and Seef of Pepper ℥j. _Alumen scissile_ ℥j. (_but according to another_ Book) ℥ij. _Stypleria rotunda, i.e._ common Allum ℥ij. _Aromate aridis_ ℥ij. Lay it up in a Vessel, and communicate it to no man. The Preparation, or Confection of _Aromate aridis_ is thus, _Costue_ ℥ij. Spikenard ℥β. (_in another Book_, ℥ij.) _Carpoblasamum_ ℥ iij. _Amomum_ ℥β. (in another place ℥v.) _Cloves_ ℥ij. _Cassia_ ℥ij. _Storax_ ℥v. _Opabalsamum_ ℥j. Roses exunglated ℥iiij. Musk ℈β.
+Powder the dry things very finely, and sift them well. Then rub the _Storax_ a long time apart, and hten with the beaten Roses and Balsam, and all mixt together, make Trochises: Afterwards suffumigate them, and dry them in a ???, _thyinum_ of Tree-Moss and _Storax_, and Mastich (?), and Quails Claws, and _Costus_, which being dried, put them up in a Glass Vessel, and when you have occasion for Conception, powder to Trochises. And this is _Confectio aromatic sicia(?)_. And the Bird Estrich has an _Echidirum_, which is called _suffivium aridum_, the inner Skin of the Gizzard: This powdered, and given in Drink secretly, _procures Love and Luxury_. And the Stone of the _Echinus_, i.e. of the Gizzard of an Estrich, with one Grain of _Satryion_,
 powdered and given in Meat or rink secretly, _procures great Intenseness to them especially, who are impotent in Coition._ And the stone it self, only hung about the Neck, _causes good Digestion, and Intenseness in Coition_. And the Stone of the right Temple of the Sea-Cow, carried about one, causes Intenseness, or Erection. And the left Stone does the contrary. And the Fat of the Fish causes great Delights, beaten up, or dissolved with Honey, and anointed on both Genitals. Engrave therefore upon a Saphire-stone an Estrich holding a Sea-Cow in its Mouth, and put underneath a grain of _Satyrium_ and a little of the Stone, which is in the _Echinus_ or Gizzard of the same Bird, and enclosing it, wear it, _against all indigestion and for Tension and Love. For it is very good for those that desire to use much Coition, and for old Men. And it makes him that wears it, gracious._
 
 
@@ -1480,7 +1480,7 @@ which you have a mind to.
 ## LETTER XX. Υ.
 
 _{G}, is an Herb stupednously good; some
-call it Dionysiaca,_ i. e. Bacchus _and_ Jove
+call it Dionysiaca,_ i.e. Bacchus _and_ Jove
 _their Herb, {G}, it is a Summer
 Plant._ Yperionis avis _is the Female Eagle,
 like to the Male Eagle. {G}, a Sea-fish not
@@ -1504,7 +1504,7 @@ it therefore to Women Patients as a great Mystery.
 ## LETTER XXI. Φ.
 
 _{G} is an Herb, which is called {G},
-i. e. Rana, an evil Plant. The forms of it is as
+i.e. Rana, an evil Plant. The forms of it is as
 opium raninum: And it grows in Waters, being
 of a burning quality. {G} is a Bird; it is
 of the bigness of a Sparrow. {G}, a Seal or Sea-Calf,_
@@ -1653,7 +1653,7 @@ thing.
 
 ## LETTER XXII. X.
 
-{G}, i. e. _Golden-Flour, us an Herb
+{G}, i.e. _Golden-Flour, us an Herb
 known to all. {G}, a Golden-wing, is a
 Bird of the bigness of a Quail. {G} (or
 rather {G}) an edible Sea-fish known to all,
@@ -1706,7 +1706,7 @@ _{G}, is an Herb known to all, Fleawort.
 {G} marinus, a very little Animal
 which Fishers use. It sings by the shore. {G},
 a well known Bird, a Starling. Psorites, a Stone
-called {G},_ i. e. _Vadum._
+called {G},_ i.e. _Vadum._
 
 Boyl therefore of the Seed of the Herb
 ℥iij. in ℥xviij. of Water to viscosity, strain it
@@ -1745,7 +1745,7 @@ _{G}, an edible Plant, known to all, Basil.
 Animal, common to all, {G}, a Swallow.
 {G} a Sea-fish, Ibembras, another calls it Kymbros,
 a small edible Animal, which is called {G},
-a Pilchard or Herring. {G},_ i. e.
+a Pilchard or Herring. {G},_ i.e.
 _velociter pariens, wuickly bearing, is a Stone less
 than the Eagle-stone and ratling. And it is
 smooth to the Touch._
@@ -1848,7 +1848,7 @@ Confection in this manner, Take, I say, the
 eyes of a _Mænis_, and put them into Wine
 with some Lily, and infuse them so for seven
 dayes, then put into the Wine of Mandrake
-Seeds ℥xiv. Seeds of {G}, _i. e._ Dog-Briar
+Seeds ℥xiv. Seeds of {G}, _i.e._ Dog-Briar
 ℥iv. of the Herb _Scorpionia_ ℥iv. Boyl it to
 half, and put it up and use it. _For mad
 People;_ If you see any one in Madness, or a
