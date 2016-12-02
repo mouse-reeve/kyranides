@@ -1167,13 +1167,14 @@ Barbatus_ or _Mullein_: There are seven sorts of
 this Herb. It differs therefore as much as the
 Leaves, which ascend a cubit above the Earth,
 They burn the Leaves of this in Lamps for
-Wieks. For they have them in {G}
-(_i.e._ in Necromancy) which is performed
+Wieks. For they have them in Νεκυϊηαις
+μαντέιαις (_i.e._ in Necromancy) which is performed
 in a Shell, which they do to this
 day. Wherefore they call this herb _Nekya_.
-_For {G}_ signifies _dead_. {G}, i.e. a Duck,
+_For [νέκυς](http://lsj.translatum.gr/wiki/%CE%BD%CE%AD%CE%BA%CF%85%CF%82)_ signifies _dead_. Νῆττα, i.e. a Duck,
 is a bird swimming in Rivers, about the bigness
-of a Hen. {G} is the Sea-fish {G},
+of a Hen. [Ναυκράτης](http://lsj.translatum.gr/wiki/%CE%BD%CE%B1%CF%85%CE%BA%CF%81%CE%AC%CF%84%CE%B7%CF%82) is the Sea-fish
+[ἐχενηΐς](http://lsj.translatum.gr/wiki/%E1%BC%90%CF%87%CE%B5%CE%BD%CE%B7%CE%90%CF%82),
 or _Remora, i.e._ Stop-ship; if this stick to a
 Ship under Sail, it will not suffer the Ship to
 stir, it would break first, or a Tree might
@@ -1214,15 +1215,15 @@ Hawk._
 
 ## LETTER XIV. Ξ.
 
-_{G}, an Herb. Xiphius, a Stone. Xiphius,
-a Bird. {G}, a Fish known to all,
+_[Ξιφίον](http://lsj.translatum.gr/wiki/%CE%BE%CE%AF%CF%86%CE%B9%CE%BF%CE%BD), an Herb. Xiphius, a Stone. Xiphius,
+a Bird. [Ξιφίας](http://lsj.translatum.gr/wiki/%CE%BE%CE%B9%CF%86%CE%AF%CE%B1%CF%82), a Fish known to all,
 called_ Spatha _or_ Gladius.
 
 _Xiphion_, i.e. _Gladiole_, is an herb, which
 abounds in all Lands; it has Leaves like
 Corn, but longer. It grows in plowed
 grounds with Corn, some call it _Machera_,
-_i.e._ a Knife or Skien, others {G}, a
+_i.e._ a Knife or Skien, others [φάσγανον](http://lsj.translatum.gr/wiki/%CF%86%CE%AC%CF%83%CE%B3%CE%B1%CE%BD%CE%BF%CE%BD), a
 Sword. It ascends upright from the ground
 as one Arm; and it is but of one Branch. It
 Has a Gold coloured, purplish, sweet-sented
@@ -1270,14 +1271,14 @@ mad._
 
 ## LETTER XV. O.
 
-_{G}, an Herb. {G}, a Bird. Orphos
-a Fish. {G}, a Stone known to all._
+_Όνοθύρπς, an Herb. [Όρτυξ](http://lsj.translatum.gr/wiki/%E1%BD%84%CF%81%CF%84%CF%85%CE%BE), a Bird. Orphos
+a Fish. [Όνυχίτης](http://lsj.translatum.gr/wiki/%E1%BD%80%CE%BD%CF%85%CF%87%CE%AF%CF%84%CE%B7%CF%82), a Stone known to all._
 
 _Onothyris_ or _Onothyrsis_ is an Herb, some
-call it {G} _i.e._ Asses Mallow, this is a
+call it Όνυμαλάχη _i.e._ Asses Mallow, this is a
 Rose, of which they make Garlands; It has
 Leaves like domestick Mallow. This by the
-Greeks is called {G} i.e. _Malvaviscus_
+Greeks is called [ἀλθαία](http://lsj.translatum.gr/wiki/%E1%BC%80%CE%BB%CE%B8%CE%B1%CE%AF%CE%B1) i.e. _Malvaviscus_
 Marsh-Mallow. _Ortyx_, a Quail, is a Bird known to all,
 yet its Nature is not easily known; for there
 is one thing concerning this, unknown. _For
@@ -1298,7 +1299,7 @@ of them._ _Orphos_ is an edible Sea-fish, much
 like a Tench. _Onychites_ is a _Sardonix_ stone
 known to all. The Root therefore of the
 Herb boyled with Oyl and the Fat of a Quail,
-and then a little Wax added, _is good for baraness
+and then a little Wax added, _is good for hardness
 of the Matrix, and Swellings, and Ulcers,
 and Itchings, and all other Womens Diseases in
 the_ Matrix. And it is put into Medicines for
@@ -1328,9 +1329,10 @@ take any thing away that is in the House.
 
 ## LETTER XVI. Π.
 
-_{G}, some call it {G}, Knot-grass.
+_[Πολύγονον](http://lsj.translatum.gr/wiki/%CF%80%CE%BF%CE%BB%CF%8D%CE%B3%CE%BF%CE%BD%CE%BF%CE%BD), some call it
+[χαμαίζηλον](http://lsj.translatum.gr/wiki/%CF%87%CE%B1%CE%BC%CE%B1%CE%AF%CE%B6%CE%B7%CE%BB%CE%BF%CF%82), Knot-grass.
 Porphyrius, a pluvial Bird, or Pluver, which abounds
-in Rivers. {G}, a sea shell-fish, the
+in Rivers. [Πορφύρα](http://lsj.translatum.gr/wiki/%CF%80%CE%BF%CF%81%CF%86%CF%8D%CF%81%CE%B1), a sea shell-fish, the
 Purple: some call it Scolecium, like to a Wilk.
 Porphyrius, the Porphyry-stone, well known in the
 Country of_ Melanitis.
