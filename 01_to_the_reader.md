@@ -217,63 +217,196 @@ sirnames him _Fulginas_; _Raphael Volaterranus_,
 _Suchonas_; but _Gesner_ and the most
 call him _Cremomensit_.
 
-This Latin Translation has been quoted by many at the second hand. But I never met with any that saw so much as a Manuscript of it, till Barthius (as we told you) saw it in Dr. Ellenberger's Hand, who kept it as a pre cious Jewel, and a great Rarity. He had wrote in the Book with his own Hand, That he re ceived this Book in Manuscript, as a singular Boom, from the mºst Illusirious Lady, the Lady E LEO NOR,Landgraves of Hesse,descended from the Family of the Dukes of Wirtemberg, at Darmstad, Anno M. DC. IX. This Book
+This Latin Translation has been quoted by
+many at the second hand. But I never met
+with any that saw so much as a Manuscript of
+it, till _Barthius_ (as we told you) saw it in
+Dr. _Ellenberger_'s Hand, who kept it as a precious
+Jewel, and a great Rarity. He had wrote
+in the Book with his own Hand, _That he received
+this Book in Manuscript, as a singular
+Boon, from the most Illustrious Lady, the Lady_
+ELEONOR, _Landgravess of_ Hesse, _descended
+from the Family of the Dukes of_ Wirtemberg,
+_at_ Darmstad, Anno M.DC.IX. This Book
+had, about an hundred Years before that, been
+in the possession of one _Waltherus de_ VIELBEL,
+_Præpositus, S. L._ by whose Donation it belonged
+to David _Vielbel_, Anno M.D.XXX. After
+Dr. _Ellenberger_'s Death, this Treasure fell
+to his Son _Christian William Ellenberger_, who
+being a Soldier, bestowed it upon a Physician,
+his Acquaintance and Friend. This Physician
+printed it privately; for neither his own,
+nor the Printer's, nor the place's Name is
+printed. But he says, he was forced to leave
+the University, and to retire into the Countrey,
+by reason of the Plague, of which the
+Famous _Sennertus_ died, and he only took this
+curious Manuscript with him, and in his Retirement
+fitted it for the Press. It bears
+Date M.D.C.XXXVIII. So that it seems, but
+a few Copies were printed, and those privately
+distributed; one of which with some difficulty
+I procured.
 
-
-had ,about an hundred Years before that, been in the possession of oneWaltherus de VIELBEL, Praposttu, S. L. by whose Donation it belong ed to David Wielbel, Anno M. D.XXX. Af
-ter Dr. Ellenberger's Death, this Treasure fell to his Son Christian William Ellenberger, who being a Soldier, bestowed it upon a Physician, his Acquaintance and Friend. This Physici an printed it privately 3 for neither his own, nor the Printer's, nor the place's Name is printed. But he says, he was forced to leave the University, and to retire into the Coun- trey, by reason of the Plague, of which the Famous Sennertus died, and he only took this curious Manuscript with him, and in his Re
-tirement fitted it for the Press. It bears
-Date M.D.C.XXXVIII. So that it seems, but a few Copies were printed, and those private ly distributed; one of which with some diffi culty I procured. As for the Book, it seems to be one of that
-sort of Books which Men in the Aās, who
-used curious Arts, brought together, and burnt, the Price whereof being counted, was found to be fifty thousand pieces of Silver. But since such miraculous Zeal is ceased, with
-the rest of Miracles, this piece of Curiosity needs no more undergo Martyrdom, than Christians now need sell all, and live upon a
-common Stock, as they did in the Fourth :
-- the
-To the Reader.
-the Aïr, especially since Tertullian, one of the
-Fathers, quoted it. It contains, I confess, much Curiosity in it 5 but nothing to endam mage Christianity, where it is so firmly set tled: And if there be something that deserves the Sponge, yet all ought not therefore to be obliterated; nor must the Child be thrown
-away with the Bathe. But the time the Au thors lived in, requires some Grains of Allow ance. And those hidden specifick Vertues of .
-things, and strange Methods in curing Disea ses, may atone for the Scraps of Vanity and Superstition that are in the Book. I find,that
-former impolite Ages, were nevertheless very curious in Affairs of Philosophy, and in that regard surpassed our better cultivated, and more literate Age. I find also, that great De ference was given to our Authors: Insomuch that Albertus Magnus (who is quite spoiled by unskilful Transcribers) quotes this very Book. For in Trimum Magicum, p. 168, there is this Passage, Magicalis cognitio existit in speculatione rationum, cº in speculatione matura lium, secundum quod antiquis Authoribus exami navi & percepi, imo & egomet Albertus, ut in pluribus veritatem inveni, & veritatem suppomo (eo modo) quo ab aliquo ex CHYRANDIS li bro, & libro ALCHORAT (sc eruere licuit) Where it is plain enough, that it was first written CYRANIDIS libro & ARPOCRATI.
-ONIS,
-To the Reader.
-ONIS, and by mistake so misèrably depraved. But since Albertus, many learned Men of the Moderns have made use of Kirami, as Gesner, Aldrovandu, Balduinus Ronseus, and others. As for Medicines, I know no Specifick men
-tioned by the Ancients, and very few by the Moderns, which he has not, besides many, that are to be met with no where else. But
+As for the Book, it seems to be one of that
+sort of Books which Men in the _Acts_, who
+used curious Arts, brought together, and
+burnt, the Price whereof being counted, was
+found to be fifty thousand pieces of Silver.
+But since such miraculous Zeal is ceased, with
+the rest of Miracles, this piece of Curiosity
+needs no more undergo Martyrdom, than
+Christians now need sell all, and live upon a
+common Stock, as they did in the Fourth of
+the _Acts_, especially since _Tertullian_, one of the
+Fathers, quoted it. It contains, I confess,
+much Curiosity in it; but nothing to endammage
+Christianity, where it is so firmly settled:
+And if there be something that deserves
+the Sponge, yet all ought not therefore to be
+obliterated; nor must the Child be thrown
+away with the Bathe. But the time the Authors
+lived in, requires some Grains of Allowance.
+And those hidden specifick Vertues of
+things, and strange Methods in curing Diseases,
+may atone for the Scraps of Vanity and
+Superstition that are in the Book. I find, that
+former impolite Ages, were nevertheless very
+curious in Affairs of Philosophy, and in that
+regard surpassed our better cultivated, and
+more literate Age. I find also, that great Deference
+was given to our Authors: Insomuch
+that _Albertus Magnus_ (who is quite spoiled
+by unskilful Transcribers) quotes this very
+Book. For in _Trinum Magicum_, p. 168, there
+is this Passage, _Magicalis cognitio existit in
+speculatione rationum, & in speculatione naturalium,
+secundum quod antiquis Auctoribus examinavi
+& percepi, imo & egomet_ Albertus, _ut in
+pluribus veritatem inveni, & veritatem suppomo
+(eo modo) quo ab aliquo ex_ CHYRANDIS _libro,
+& libro_ ALCHORAT _(sc. eruere licuit)_
+Where it is plain enough, that it was first
+written CYRANIDIS _libro &_ ARPOCRATIONIS,
+and by mistake so miserably depraved.
+But since _Albertus_, many learned Men of the
+Moderns have made use of _Kirani_, as _Gesner,
+Aldrovandu, Balduinus Ronsæus,_ and others.
+As for Medicines, I know no Specifick mentioned
+by the Ancients, and very few by the
+Moderns, which he has not, besides many
+that are to be met with no where else. But
 because for some Ages past, to have been a
-Magician, or a Wise Man, was Capital, it will be necessary to remove some Prejudices re ceived against Magick or Wisdom, which I
-think cannot better be done, than by shewing what true Magick or Wisdom is, and how far is is consistent with the Holy Scriptures, which seem most to condemn it. Now, Magick i
-take to be a skill which by a certain Power, yet not supernatural, but created, is able to do unu fual things, whose Causes are beyond the common Comprehension of Men. In this Definition we exclude Miracles, as supernaturally wrought by the Finger of GOD. And by excluding from it all Diabolical Contraćt, we must in
-tend no other than Magick purely natural, or the Skill of managing Nature by Art, so as to accomplish strange things. We know it was the Ambition of Knowledge that ruined our First Parents; but they had to do in that Affair with the Devil. And I make no doubt, but they had the Knowledge of Good, before
-- they
-Io the Rødder.
-they tasted of the Tree of Knowledge of Good and Evil, the latter part whereof has al most obliterated the former in their posterity, though the former is that which we aim at, and which Adam undoubtedly had in his In
-nocency. For all the Learned hold him to have had an exact Knowledge of the Vertues of things before the Fall. And this Know ledge was delivered from Father to Son before the Flood, till Seth engraved it on Pil
-lars, and so by those Monuments, as well as by Noah's oral Tradition, the Post-Diluvi ans were instructed in the same. Abraham,
-is said to have had skill in Astrology. And the Scriptures testifie,what skill in the Magick of Imagination his Grand-son 3. had, from
-his pilled Rods, that he set before the Flocks, when they conceived. Moses is not only ac counted a Magician by Heathen Writers, but the Scriptures testifie, how he was learned in all the Wisdom of the AEgyptians, whereof Magick was no small Share, as their Magici ans working Wonder for Wonder with Mo
-ses, a little while, prove. -
-We read also of wise Charming in the Psalms, of which sort of Charming we have a Form in this Book, pag. 152. And if we should narrow ly enquire into all the Books of Scripture, we might perceive, that the Authors of them were skilled in the power of Nature, as well
-- 2S
-I tº wrºv iv.czºtºrs
+Magician, or a Wise Man, was Capital, it will
+be necessary to remove some Prejudices received
+against Magick or Wisdom, which I
+think cannot better be done, than by shewing
+what true Magick or Wisdom is, and how far
+is is consistent with the Holy Scriptures, which
+seem most to condemn it. Now, Magick I
+take to be _a skill which by a certain Power, yet
+not supernatural, but created, is able to do unusual
+things, whose Causes are beyond the common
+Comprehension of Men._ In this Definition we
+exclude Miracles, as supernaturally wrought
+by the Finger of GOD. And by excluding
+from it all Diabolical Contract, we must intend
+no other than Magick purely natural, or
+the Skill of managing Nature by Art, so as
+to accomplish strange things. We know it
+was the Ambition of Knowledge that ruined
+our First Parents; but they had to do in that
+Affair with the Devil. And I make no doubt,
+but they had the Knowledge of Good, before
+they tasted of the Tree of Knowledge of
+Good and Evil, the latter part whereof has almost
+obliterated the former in their posterity,
+though the former is that which we aim at,
+and which _Adam_ undoubtedly had in his Innocency.
+For all the Learned hold him to
+have had an exact Knowledge of the Vertues
+of things before the Fall. And this Knowledge
+was delivered from Father to Son before
+the Flood, till _Seth_ engraved it on Pillars,
+and so by those Monuments, as well as
+by _Noah_'s oral Tradition, the Post-Diluvians
+were instructed in the same. _Abraham_
+is said to have had skill in Astrology. And
+the Scriptures testifie, what skill in the Magick
+of Imagination his Grand-son _Jacob_ had, from
+his pilled Rods, that he set before the Flocks,
+when they conceived. _Moses_ is not only accounted
+a Magician by Heathen Writers, but
+the Scriptures testifie, how he was learned in
+all the Wisdom of the _Ægyptians_, whereof
+Magick was no small Share, as their Magicians
+working Wonder for Wonder with _Moses_,
+a little while, prove.
+
+We read also of wise Charming in the Psalms,
+of which sort of Charming we have a Form in
+this Book, _pag_. 152. And if we should narrowly
+enquire into all the Books of Scripture, we
+might perceive, that the Authors of them
+were skilled in the power of Nature, as well
 as of Godliness, the former whereof, was, and
-is called Magick. Nay, the Magi of the East, were more devout in following their Star, to worship our Saviour, than all the Nation of the Jews. So that Magick (unless with jam me, and jambres, we use it in opposition against GOD)is not only lawful, but commendable. But whereas Kirani undertakes to cast out,
+is called Magick. Nay, the _Magi_ of the East,
+were more devout in following their Star, to
+worship our Saviour, than all the Nation of
+the Jews. So that Magick (unless with _Jannes_,
+and _Jambres_, we use it in opposition against
+GOD) is not only lawful, but commendable.
+
+But whereas _Kirani_ undertakes to cast out,
 and drive away evil Spirits by natural Means,
-this is but what Tobias in the Apocrypha did by the persuasion of the Angel: For he remembred the words of Raphael, and took coals for per fumes, and put the Heart and Liver of the Fish thereupon, and made a perfume. The which smell when the evil Spirit had smelled, he fled into the atmost parts of Ægypt, whom the Angel bound. The Angel likewise told Tobias, that as for the Gall, amoynt a Man that has Whitenes; in his Eyes, and he shall be healed. And he took hold of his Father, and sprinkled of the Gall in his Fathers Eyes, saying, be of good hope my Father. And when his Eyes began to prick, he rubbed them; And the Whitenes, pilled away from the corners of his Eyes, and then he saw his Son. Now Ki rani so far explains the Apocrypha, as to tell us the Heart, the Liver and the Gall of what:
-Fish it is, that does these things. -
-I remember, I have heard of a Physician2
-erminent for the cure of Lunaticks, who is said to have used suffumigations or perfumes of
-some
-something in his Cures. And such you may meet with here.
-You must take notice, that in the first Book, in the concatenation of the Vertues of
-things according to the four Elements, the Plants are analogous to Earth, Fishes to Wa
-ter, Birds to Air, and Stones to Fire. For
+this is but what _Tobias_ in the _Apocrypha_ did by
+the persuasion of the Angel: For _he remembred
+the words of_ Raphael, _and took coals for perfumes,
+and put the Heart and Liver of the Fish
+thereupon, and made a perfume. The which smell
+when the evil Spirit had smelled, he fled into the
+utmost parts of_ Ægypt, _whom the Angel bound._
+The Angel likewise told _Tobias_, that _as for
+the Gall, anoynt a Man that has Whiteness in his
+Eyes, and he shall be healed._ And _he took hold
+of his Father, and sprinkled of the Gall in his
+Fathers Eyes, saying, be of good hope my Father.
+And when his Eyes began to prick, he rubbed them;
+And the Whiteness pilled away from the corners of
+his Eyes, and then he saw his Son._ Now _Kirani_
+so far explains the _Apocrypha_, as to tell us
+the Heart, the Liver and the Gall of what
+Fish it is, that does these things.
+
+I remember, I have heard of a Physician,
+eminent for the cure of Lunaticks, who is said
+to have used suffumigations or perfumes of
+something in his Cures. And such you may
+meet with here.
+
+You must take notice, that in the first Book,
+in the concatenation of the Vertues of
+things according to the four _Elements_, the
+Plants are analogous to Earth, Fishes to Water,
+Birds to Air, and Stones to Fire. For
 Nature's Interpreters do ascribe miraculous
 Virtues to Gemmus; and without doubt those
-efficacious and abstruseproperties descend from a peculiar influence of the Stars, and a better
+efficacious and abstruse properties descend from
+a peculiar influence of the Stars, and a better
 temperament of the Elements. And is it a
-great Argument it is so, because in the Eastern Countries, where the Sun is hottest, the best Stones are found. And therefore Kirani a
-scribes fiery Virtues to Stones, and makes one to be under one Planet, and another under
-another. But it were endless to give an ac count of all the Raritics herein contained.
-Therefore with Piety and Wisdom peruse these four Books themselves. The Worth and
-Rarity whereof, I am afraid, has tempted some dishonest person to rob the Vatican, and o
-ther Libraries of them. But are now at length (maugre Envy and ill Will,) communicated to you, for your Benefit, Farewell.
+great Argument it is so, because in the Eastern
+Countries, where the Sun is hottest, the best
+Stones are found. And therefore _Kirani_ ascribes
+fiery Virtues to Stones, and makes one
+to be under one Planet, and another under
+another. But it were endless to give an account
+of all the Rarities herein contained.
+Therefore with Piety and Wisdom peruse
+these four Books themselves. The Worth and
+Rarity whereof, I am afraid, has tempted some
+dishonest person to rob the _Vatican_, and other
+Libraries of them. But are now at length
+(maugre Envy and ill Will,) communicated to
+you, for your Benefit, Farewell.
