@@ -1355,17 +1355,17 @@ About the Corners, _scabbiness, dryness, Agethinos,
 Adustion, αἰγιλωπία, [αἰγίλωψ](http://lsj.translatum.gr/wiki/%CE%B1%E1%BC%B0%CE%B3%CE%AF%CE%BB%CF%89%CF%88), serix, fretting,
 eating away,_ here are nine. _About the Ball
 of the Eye, Pterygium, Albula, [ῥῆξις](http://lsj.translatum.gr/wiki/%E1%BF%A5%E1%BF%86%CE%BE%CE%B9%CF%82), μυκέφαλον,
-σαφύλωμα, [τάραξις](http://lsj.translatum.gr/wiki/%CF%84%CE%AC%CF%81%CE%B1%CE%BE%CE%B9%CF%82), [αἱμάλωψ](http://lsj.translatum.gr/wiki/%CE%B1%E1%BC%B1%CE%BC%CE%AC%CE%BB%CF%89%CF%88), {G}
+σαφύλωμα, [τάραξις](http://lsj.translatum.gr/wiki/%CF%84%CE%AC%CF%81%CE%B1%CE%BE%CE%B9%CF%82), [αἱμάλωψ](http://lsj.translatum.gr/wiki/%CE%B1%E1%BC%B1%CE%BC%CE%AC%CE%BB%CF%89%CF%88), ςραγγός,
 uva visus,_ here are nine. About _the Pupil,
-or Sight, there are nebula or nubes, hebetatio,
+or Sight,_ there are _nebula or nubes, hebetatio,
 latitudo pupille, effusio, effectio, defectio,
-atrophia,_ or _{G}, glaucedo, {G}, geminæ
-pupillæ, {G}, metalopa, myops, obscuratio,_ here
+atrophia,_ or _[φθίσις](https://lsj.translatum.gr/wiki/%CF%86%CE%B8%CE%AF%CF%83%CE%B9%CF%82), glaucedo, [μυδρίασις](https://lsj.translatum.gr/wiki/%CE%BC%CF%85%CE%B4%CF%81%CE%AF%CE%B1%CF%83%CE%B9%CF%82), geminæ
+pupillæ, όπώπιον, metalopa, myops, obscuratio,_ here
 are twelve. In _the whole substance of the Eye,
-there are {G}, {G}, {G}, combustio,
+there are [φλεγμονή](https://lsj.translatum.gr/wiki/%CF%86%CE%BB%CE%B5%CE%B3%CE%BC%CE%BF%CE%BD%CE%AE), [φίμωσις](https://lsj.translatum.gr/wiki/%CF%86%CE%AF%CE%BC%CF%89%CF%83%CE%B9%CF%82), [χύμωσις](https://lsj.translatum.gr/wiki/%CF%87%CF%8D%CE%BC%CF%89%CF%83%CE%B9%CF%82), combustio,
 suffusio, apostema, comestio, ulcus, circumdolor,
 psydrakium,_ here are ten. And there are several
-sorts of _Rheums, lene, {A}, subitum, calidum,
+sorts of _Rheums, lene, [λάβρον](https://lsj.translatum.gr/wiki/%CE%BB%CE%AC%CE%B2%CF%81%CE%BF%CF%82), subitum, calidum,
 dulce, frigidum, tepidum, tenue, acre, antiquum
 & arenosum, aluminosum,_ here are eleven
 Rheums, and in all fifty five Diseases.
@@ -1395,10 +1395,10 @@ Moon make the Ring, And the Eye-salve.
 
 ## LETTER XVII. P.
 
-_{G}, a Plant. Romphea, the Bird {G},
+_[Ῥάμνοι](https://lsj.translatum.gr/wiki/%E1%BF%AC%CE%B1%CE%BC%CE%BD%CE%BF%E1%BF%A6%CF%82), a Plant. Romphea, the Bird [νυκτερίς](https://lsj.translatum.gr/wiki/%CE%BD%CF%85%CE%BA%CF%84%CE%B5%CF%81%CE%AF%CF%82),
 an Owl with long Ears well known to all.
-{G}, a Sea fish, having as it were a Needle in
-its Mouth. {G}, a parti coloured stone, a
+[Ῥαφίς](https://lsj.translatum.gr/wiki/%E1%BF%A5%CE%B1%CF%86%CE%AF%CF%82), a Sea fish, having as it were a Needle in
+its Mouth. [Ῥινόκερως](https://lsj.translatum.gr/wiki/%E1%BF%A5%CE%B9%CE%BD%CF%8C%CE%BA%CE%B5%CF%81%CF%89%CF%82), a parti coloured stone, a
 horned stone of the end of the Rhinoceros Nose.
 For it is like a Horn._
 
@@ -1426,8 +1426,8 @@ from him.
 
 ## LETTER XVIII. Σ.
 
-_{G}, an Herb. {G}, a Bird,
-Struthiogambarum, an Estrich. {G} a Fish,
+_[Σατύριον](https://lsj.translatum.gr/wiki/%CF%83%CE%B1%CF%84%CF%8D%CF%81%CE%B9%CE%BF%CE%BD), an Herb. [Στρουθοκάμηλος](https://lsj.translatum.gr/wiki/%CF%83%CF%84%CF%81%CE%BF%CF%85%CE%B8%CE%BF%CE%BA%CE%AC%CE%BC%CE%B7%CE%BB%CE%BF%CF%82), a Bird,
+Struthiogambarum, an Estrich. [Σάλπη](https://lsj.translatum.gr/wiki/%CF%83%CE%AC%CE%BB%CF%80%CE%B7) a Fish,
 a Sea-Cow. Saphirus, a Saphire-stone._
 
 _Satyrion_ is an Herb like _Spinosa_, and it starts
@@ -1446,18 +1446,64 @@ and gives Conception._ If before Coition,
 you strew it on the virile Member, anointed
 with Honey, the Woman will be debilitated
 beyond measure. And if the Woman be so anointed,
-the Intenseness of the Act will be great: For it dries up Nature, and causes Conception, and makes barren women conceive. And it is prepared thus: of _Satyrion_ Seed ℥ij.
-and Seef of Pepper ℥j. _Alumen scissile_ ℥j. (_but according to another_ Book) ℥ij. _Stypleria rotunda, i.e._ common Allum ℥ij. _Aromate aridis_ ℥ij. Lay it up in a Vessel, and communicate it to no man. The Preparation, or Confection of _Aromate aridis_ is thus, _Costue_ ℥ij. Spikenard ℥β. (_in another Book_, ℥ij.) _Carpoblasamum_ ℥ iij. _Amomum_ ℥β. (in another place ℥v.) _Cloves_ ℥ij. _Cassia_ ℥ij. _Storax_ ℥v. _Opabalsamum_ ℥j. Roses exunglated ℥iiij. Musk ℈β.
-Powder the dry things very finely, and sift them well. Then rub the _Storax_ a long time apart, and hten with the beaten Roses and Balsam, and all mixt together, make Trochises: Afterwards suffumigate them, and dry them in a ???, _thyinum_ of Tree-Moss and _Storax_, and Mastich (?), and Quails Claws, and _Costus_, which being dried, put them up in a Glass Vessel, and when you have occasion for Conception, powder to Trochises. And this is _Confectio aromatic sicia(?)_. And the Bird Estrich has an _Echidirum_, which is called _suffivium aridum_, the inner Skin of the Gizzard: This powdered, and given in Drink secretly, _procures Love and Luxury_. And the Stone of the _Echinus_, i.e. of the Gizzard of an Estrich, with one Grain of _Satryion_,
-powdered and given in Meat or rink secretly, _procures great Intenseness to them especially, who are impotent in Coition._ And the stone it self, only hung about the Neck, _causes good Digestion, and Intenseness in Coition_. And the Stone of the right Temple of the Sea-Cow, carried about one, causes Intenseness, or Erection. And the left Stone does the contrary. And the Fat of the Fish causes great Delights, beaten up, or dissolved with Honey, and anointed on both Genitals. Engrave therefore upon a Saphire-stone an Estrich holding a Sea-Cow in its Mouth, and put underneath a grain of _Satyrium_ and a little of the Stone, which is in the _Echinus_ or Gizzard of the same Bird, and enclosing it, wear it, _against all indigestion and for Tension and Love. For it is very good for those that desire to use much Coition, and for old Men. And it makes him that wears it, gracious._
+the Intenseness of the Act will be
+great: For it dries up Nature, and causes
+Conception, and makes barren women conceive.
+And it is prepared thus: of _Satyrion_
+Seed ℥ij. and Seed of Pepper ℥j. _Alumen
+scissile_ ℥j. (_but according to another_ Book) ℥ij. _Stypleria
+rotunda, i.e._ common Allum ℥ij.
+_Aromate aridis_ ℥ij. Lay it up in a Vessel, and communicate
+it to no man. The Preparation, or
+Confection of _Aromate aridis_ is thus, _Costue_ ℥iij.
+Spikenard ℥β. (_in another Book_, ℥ij.) _Carpobalsamum_
+℥ij. _Amomum_ ℥β. (in another place ℥v.)
+_Cloves_ ℥ij. _Cassia_ ℥ij. _Storax_ ℥v. _Opobalsamum_ ℥j.
+Roses exungulated ℥iiij. Musk ℈β. Powder
+the dry things very finely, and sift them well.
+Then rub the _Storax_ a long time apart, and
+then with the beaten Roses and Balsam, and
+all mixt together, make Trochises: Afterwards
+suffumigate them, and dry them in a
+{G}, _thyinum_ of Tree-Moss and _Storax_, and
+Mastich, and Quails Claws, and _Costus_, which
+being dried, put them up in a Glass Vessel,
+and when you have occasion for Conception,
+powder to Trochises. And this is _Confectio
+aromatis sicca (?)_. And the Bird Estrich has an
+_Echidirum_, which is called _suffivium aridum_,
+the inner Skin of the Gizzard: This powdered,
+and given in Drink secretly, _procures Love
+and Luxury_. And the Stone of the _Echinus_,
+i.e. of the Gizzard of an Estrich, with one Grain
+of _Satryion_, powdered and given in Meat or
+Drink secretly, _procures great Intenseness to them
+especially, who are impotent in Coition._ And the
+stone it self, only hung about the Neck, _causes
+good Digestion, and Intenseness in Coition_. And
+the Stone of the right Temple of the Sea-Cow,
+carried about one, causes Intenseness,
+or Erection. And the left Stone does the contrary.
+And the Fat of the Fish causes great
+Delights, beaten up, or dissolved with Honey,
+and anointed on both Genitals. Engrave
+therefore upon a Saphire-stone an Estrich
+holding a Sea-Cow in its Mouth, and put
+underneath a grain of _Satyrium_ and a little
+of the Stone, which is in the _Echinus_ or Gizzard
+of the same Bird, and enclosing it, wear
+it, _against all indigestion and for Tension and
+Love. For it is very good for those that desire
+to use much Coition, and for old Men. And it
+makes him that wears it, gracious._
 
 
 
 ## LETTER XIX. Τ.
 
-_Trifolium, Trefoil, a known Herb. {G},
+_Trifolium, Trefoil, a known Herb. [Ταώς](https://lsj.translatum.gr/wiki/%CF%84%CE%B1%CF%8E%CF%82),
 the Peacock, a delectable and acceptable Bird,
-which all do know. {G}, a Turtle, a Sea-fish
+which all do know. [Τρυγών](https://lsj.translatum.gr/wiki/%CF%84%CF%81%CF%85%CE%B3%CF%8E%CE%BD), a Turtle, a Sea-fish
 known to all, whose good and bad is known.
 Taïtis, a Stone as beautiful as a Peacock, and
 like one._
@@ -1481,7 +1527,7 @@ which you have a mind to.
 
 ## LETTER XX. Υ.
 
-_{G}, is an Herb stupednously good; some
+_{G}, is an Herb stupendously good; some
 call it Dionysiaca,_ i.e. Bacchus _and_ Jove
 _their Herb, {G}, it is a Summer
 Plant._ Yperionis avis _is the Female Eagle,
