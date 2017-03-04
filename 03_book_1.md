@@ -1527,9 +1527,9 @@ which you have a mind to.
 
 ## LETTER XX. Υ.
 
-_{G}, is an Herb stupendously good; some
+_[Ύπέρικον](https://lsj.translatum.gr/wiki/%E1%BD%91%CF%80%CE%B5%CF%81%CE%B9%CE%BA%CF%8C%CE%BD), is an Herb stupendously good; some
 call it Dionysiaca,_ i.e. Bacchus _and_ Jove
-_their Herb, {G}, it is a Summer
+_their Herb, προβατότυλιο (?), it is a Summer
 Plant._ Yperionis avis _is the Female Eagle,
 like to the Male Eagle. {G}, a Sea-fish not
 edible. Yenos, a Stone which is found in Rivers,
@@ -1543,22 +1543,23 @@ have it not, put in a Hawk's Feather,
 and enclosing it, you will have a great
 Phylactery _for all Fits of the Mother and
 Swimmings in the Head, and Flux of Blood,
-and further for all Diseases onthe Mother, excerpt
-the falling down of the Womb._ Give
-it therefore to Women Patients as a great Mystery.
+and further for all Diseases of the Mother, excerpt
+the falling down of the Womb._ Give it
+therefore to Women Patients as a great Mystery.
 
 
 
 ## LETTER XXI. Φ.
 
-_{G} is an Herb, which is called {G},
+_[Φρύνιον](https://lsj.translatum.gr/wiki/%CF%86%CF%81%CF%8D%CE%BD%CE%B9%CE%BF%CE%BD) is an Herb, which is called [βατράχιον](https://lsj.translatum.gr/wiki/%CE%B2%CE%B1%CF%84%CF%81%CE%AC%CF%87%CE%B9%CE%BF%CE%BD),
 i.e. Rana, an evil Plant. The forms of it is as
-opium raninum: And it grows in Waters, being
-of a burning quality. {G} is a Bird; it is
-of the bigness of a Sparrow. {G}, a Seal or Sea-Calf,_
+apium raninum: And it grows in Waters, being
+of a burning quality. [Φρύνη](https://lsj.translatum.gr/wiki/%CF%86%CF%81%CF%8D%CE%BD%CE%B7) is a Bird;, and
+some call it Ictaeris, others a green Bird; it is
+of the bigness of a Sparrow. [Φώκη](https://lsj.translatum.gr/wiki/%CF%86%CF%8E%CE%BA%CE%B7), a Seal or Sea-Calf,_
 viz. _an excellent Sea-Animal having
 hands like a Man, a Face like a Calf or a Cow.
-{G}, some call it {G}, a Toad-stone._
+[Φρύνος](https://lsj.translatum.gr/wiki/%CF%86%CF%81%E1%BF%A6%CE%BD%CE%BF%CF%82), some call it [βάτραχος](https://lsj.translatum.gr/wiki/%CE%B2%CE%AC%CF%84%CF%81%CE%B1%CF%87%CE%BF%CF%82), a Toad-stone._
 
 The Virtue of the Herb therefore is strong
 as Iron, _viz. it breaks Apostemes, Kernels,
@@ -1572,7 +1573,7 @@ things, which cleanse and draw, and then
 Healers. And thïs is the Rosary. Of the
 Herb _Batrachia_ ℥iv. Arsenick ℥iv. _Chalcitis_
 ℥iv. _Lathyridon_ ℥iv. the Breasts of _Cantharides_,
-throwing away the ings and legs ℥vj.
+throwing away the wings and legs ℥vj.
 quick Lime ℥j. (in another place ℥viij.) Oyl
 of Cedar, or Roses, or _Costus_ what is sufficient;
 French Soap ℥iv. Beat them together
@@ -1581,7 +1582,7 @@ in a Glass Vessel. Use it, and take care you
 lay it not upon a Nerve or Muscle, and make
 a Convulsion. And it is good also for an
 _Ægilops_ and _Trichiasis_, applied after they appear
-to be rosen. The hairs also of a Seal
+to be risen. The hairs also of a Seal
 which are found between its Nose and its
 Mouth, the greater and harsher of them
 pluckt, with the middle of a Seal's Heart
@@ -1602,7 +1603,7 @@ for it affords health, and good acts, and good
 works, opportunity, and abundance of all good
 things, and truly it is the great Protection of
 GOD,_ especially if it have the Root or
-Fruit of Pæony init. And the Nails of a
+Fruit of Pæony in it. And the Nails of a
 Seal's hands, carried about one or worn, frustrate
 all Treacheries and Fascinations. Therefore
 it will not be inconvenient neither, to
@@ -1623,7 +1624,7 @@ its Claws hung about one _cures the cold Fit
 of a Quotidian, Tertian and Quartan Ague._
 And its Heart tied in a Cloth, and worn upon
 the Arms, _puts off a Tertian, and Quartan,
-and an {G}._ In a Toadstone therefore
+and an [ἀμφημερινὸς](https://lsj.translatum.gr/wiki/%E1%BC%80%CE%BC%CF%86%CE%B7%CE%BC%CE%B5%CF%81%CE%B9%CE%BD%E1%BD%B8%CF%82)._ In a Toadstone therefore
 engrave a Hawk and at its feet the
 Frog-Fish, and enclose the Tongue of a Frog,
 and the root of the Herb, and the end of
@@ -1631,7 +1632,7 @@ the Tongue of the Bird, and give it
 to whom you please to carry. _For it
 stops all Fluxes of Blood, and cures the Jaundice.
 It is also for such as spit blood, and
-for the Flux of Women, and is good for the ???
+for the Flux of Women, and is good for the act
 of Fury above the Anger of ones Enemies,_ especially
 if the hairs of a Seal be enclosed in
 it. _It preserves also from venomous Stings._ And
@@ -1639,21 +1640,21 @@ it has other Acts also, which I shall relate.
 Take the Stone, which is called _Hieracite_
 and engrave in it a Hawk, and at his feet a
 Frog, and under foot engrave this _M l â a â_
-which is _Malae_. In another Book it is found
-thus; _Mer Gys Rai maa ovaa._ And in a living
+which is _Malaa_. In another Book it is found
+thus; _Mer Gyf Rai maa ovaa._ And in a living
 Loadstone make this Sculpture, _a a m a a G y n a_:
-But other have it thus _M a a a a_.
+But other have it thus _M a a a a a_.
 And take a common Hawk, which we call
 _Circus_, or a Falcon, kill it in Spring-water
 by dipping it under water so often till it dies.
-Take it therefore, and preserve it in Myr???
+Take it therefore, and preserve it in Myrrh
 for seven days, as in Salt. And after seven
 dayes, tie the Tongue of a living Frog, and two
-stones, _scil_, a _Hieracties_ and a Magnet, and
-little filings of Steel, that the Magnet, may
+stones, _scil._ a _Hieracites_ and a Magnet, and
+little filings of Steel, that the Magnet may
 live, tie them in a Hawk's Skin: And make
 the Ligature of the Phylactery of the nerve
-of the Hawk, as round (or twisted) Co???
+of the Hawk, as a round (or twisted) Cord
 small and long, that being worn about the
 Neck, it may reach to the Stomach and Heart
 and _you will foreknow all things_. But neither
@@ -1667,7 +1668,7 @@ in Rain-water till it sprout, so that indeed
 the Grain does just appear, xxviij
 Corns, and of the Herb _Batrachia_ ℥iv. Frankincense ℥iv.
 of the Herb _Chamæleon_ iiij Seeds,
-which are called _C?idius Coccus_. Bruise them,
+which are called _Cnidius Coccus_. Bruise them,
 and boyl then with _Hydromel_, till it grow as
 thick as an Electuary, and put it up in a
 Glass Vessel, and keep it covered. But when
@@ -1701,11 +1702,11 @@ thing.
 
 ## LETTER XXII. X.
 
-{G}, i.e. _Golden-Flour, us an Herb
-known to all. {G}, a Golden-wing, is a
-Bird of the bigness of a Quail. {G} (or
-rather {G}) an edible Sea-fish known to all,
-a Guilt-head, {G}, a speckled Stone, and as
+[Χρυσάνθεμον](https://lsj.translatum.gr/wiki/%CF%87%CF%81%CF%85%CF%83%CE%AC%CE%BD%CE%B8%CE%B5%CE%BC%CE%BF%CE%BD), i.e. _Golden-Flour, us an Herb
+known to all. Χρυσέπτερις, a Golden-wing, is a
+Bird of the bigness of a Quail. Χρυσόφρος (or
+rather [Χρυσόφρυς](https://lsj.translatum.gr/wiki/%CF%87%CF%81%CF%8D%CF%83%CE%BF%CF%86%CF%81%CF%85%CF%82)) an edible Sea-fish known to all,
+a Guilt-head, [Χρυσίτης](https://lsj.translatum.gr/wiki/%CF%87%CF%81%CF%85%CF%83%CE%AF%CF%84%CE%B7%CF%82_, a speckled Stone, and as
 it were Golden._
 
 The Flower therefore of _Chrysanthemum_ is
@@ -1750,11 +1751,11 @@ People._
 
 ## LETTER XXIII. Ψ.
 
-_{G}, is an Herb known to all, Fleawort.
-{G} marinus, a very little Animal
-which Fishers use. It sings by the shore. {G},
+_[Ψύλλιον](https://lsj.translatum.gr/wiki/%CF%88%CF%8D%CE%BB%CE%BB%CE%B9%CE%BF%CE%BD), is an Herb known to all, Fleawort.
+[Ψύλλος](https://lsj.translatum.gr/wiki/%CF%88%CF%8D%CE%BB%CE%BB%CE%BF%CF%82) marinus, a very little Animal
+which Fishers use. It sings by the shore. [Ψάρος](https://lsj.translatum.gr/wiki/%CF%88%CE%AC%CF%81%CE%BF%CF%82),
 a well known Bird, a Starling. Psorites, a Stone
-called {G},_ i.e. _Vadum._
+called [πόρος](https://lsj.translatum.gr/wiki/%CF%80%CF%8C%CF%81%CE%BF%CF%82),_ i.e. _Vadum._
 
 Boyl therefore of the Seed of the Herb
 ℥iij. in ℥xviij. of Water to viscosity, strain it
@@ -1788,13 +1789,13 @@ Pond, _he will make a great catching of Fish._
 
 ## LETTER XXIV. Ω.
 
-_{G}, an edible Plant, known to all, Basil.
-{G}, a Bird, Swift-wing, a venerable
-Animal, common to all, {G}, a Swallow.
-{G} a Sea-fish, Ibembras, another calls it Kymbros,
-a small edible Animal, which is called {G},
-a Pilchard or Herring. {G},_ i.e.
-_velociter pariens, wuickly bearing, is a Stone less
+_[Ώκιμον](https://lsj.translatum.gr/wiki/%E1%BD%A4%CE%BA%CE%B9%CE%BC%CE%BF%CE%BD), an edible Plant, known to all, Basil.
+[Ώκύπτερος](https://lsj.translatum.gr/wiki/%E1%BD%A0%CE%BA%CF%8D%CF%80%CF%84%CE%B5%CF%81%CE%BF%CF%82), a Bird, Swift-wing, a venerable
+Animal, common to all, [χελιδών](https://lsj.translatum.gr/wiki/%CF%87%CE%B5%CE%BB%CE%B9%CE%B4%CF%8E%CE%BD), a Swallow.
+Ώμυς a Sea-fish, Ibembras, another calls it Kymbros,
+a small edible Animal, which is called [μαινίς](https://lsj.translatum.gr/wiki/%CE%BC%CE%B1%CE%B9%CE%BD%CE%AF%CF%82),
+a Pilchard or Herring. [Ώκυτόκιος](https://lsj.translatum.gr/wiki/%E1%BD%A0%CE%BA%CF%85%CF%84%CF%8C%CE%BA%CE%B9%CE%BF%CF%82),_ i.e.
+_velociter pariens, quickly bearing, is a Stone less
 than the Eagle-stone and ratling. And it is
 smooth to the Touch._
 
@@ -1833,7 +1834,7 @@ the Foolish. For there is an Error implanted
 in the Air. If therefore you put a common
 Scorpion into ℥vijβ. of Oyl in the wain of
 the Moon, and keep it by you, and anoint
-any ones back, and the paslms of his hands,
+any ones back, and the palms of his hands,
 and the soles of his feet; but you must anoint
 the back from the top to the bottom,
 and the forehead, and the head before the
@@ -1876,8 +1877,8 @@ and in like manner lay it on, _there will be
 Thunder and Lightning._ And if you also lay
 on Earth, which fell from an house upon a
 Man, there will be an Earthquake in the
-place. And {G} they call {G}, because it
-hath great virtue in the shoulders: for {G}
+place. And [μαινίς](https://lsj.translatum.gr/wiki/%CE%BC%CE%B1%CE%B9%CE%BD%CE%AF%CF%82) they call ώμυς, because it
+hath great virtue in the shoulders: for [ὦμος](https://lsj.translatum.gr/wiki/%E1%BD%A6%CE%BC%CE%BF%CF%82)
 is a shoulder. _And the Confection of the Plasters
 is in this manner;_ Of the bones which
 are in the shoulders of Herrings, Mandrake
@@ -1896,7 +1897,7 @@ Confection in this manner, Take, I say, the
 eyes of a _Mænis_, and put them into Wine
 with some Lily, and infuse them so for seven
 dayes, then put into the Wine of Mandrake
-Seeds ℥xiv. Seeds of {G}, _i.e._ Dog-Briar
+Seeds ℥xiv. Seeds of [κυνοσβάτε](https://lsj.translatum.gr/wiki/%CE%BA%CF%85%CE%BD%CF%8C%CF%81%CE%BF%CE%B4%CE%BF%CE%BD), _i.e._ Dog-Briar
 ℥iv. of the Herb _Scorpionia_ ℥iv. Boyl it to
 half, and put it up and use it. _For mad
 People;_ If you see any one in Madness, or a
@@ -1921,7 +1922,7 @@ averts all venom of Animals, and will humble
 all Enemies and Traytors._ If any one be stung
 by a Scorpion, sign the Wound with the
 Seal, and presently he will be cured. If any
-one be _bitten by a mad Dog,_ and grow {G},
+one be _bitten by a mad Dog,_ and grow [ὑδροφοβικός](https://lsj.translatum.gr/wiki/%E1%BD%91%CE%B4%CF%81%CE%BF%CF%86%CE%BF%CE%B2%CE%B9%CE%BA%CF%8C%CF%82),
 he cannot drink a more precious
 Liquor. Take therefore the Ring, and put
 it in Water, and give him to drink, and he
