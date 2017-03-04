@@ -1,3 +1,5 @@
+# Epistle Dedicatory
+
 I Admire and commend the sigacity of
 Your Prudence, who, tho' You be experienced
 in such things as are above the Nature of our Sphere, and have
@@ -76,7 +78,7 @@ dividing into three _Kiranides_; I have
 declared the whole Composure in order of the
 Alphabet, according as any thing worthy
 Remarque occurred. And they are called
-{G}, (_Koiranides_ or Queens) because
+Κοιράνιδες, (_Koiranides_ or Queens) because
 these are the Queens of all the rest of my
 Books. And we found _Kirani_ of the King
 of the _Persians_, which is the first of these
@@ -209,3 +211,5 @@ And this is the Beginning. For tho' the Beginnings
 or Prologues of each have a Dissonance;
 yet henceforth they begin as it were
 in Consonance. And Harpocration sayes thus.
+
+

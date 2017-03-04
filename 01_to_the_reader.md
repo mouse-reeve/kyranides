@@ -1,5 +1,4 @@
-TO THE
-READER.
+# TO THE READER.
 
 After diligent Search for this Book,
 having by happy accident met with
@@ -42,7 +41,7 @@ right. These are the Words of _Maussacus_.
 _Tertullian_, has taken another, and a quite
 new course: For he thinks that Harpocration,
 whom Tertullian mentions, is the same
-with him, whose Manuscript Book {G}
+with him, whose Manuscript Book πρί φυσικῶν
 is kept in the Vatican. And
 if we relie on his Credit, _Tertullian_'s words
 may not unfitly be accommodated to that
@@ -74,15 +73,15 @@ But I would not have _Pamelius_ therefore
 rashly censured, nor his Opinion receded
 from, because perhaps, he did not, as from
 himself, affirm, that _Harpocration_'s Manuscript
-{G}, was in the Vatican;
+περί φυσικῶν δυνάμεων, was in the Vatican;
 but he has been told so by some,
 either whose Memory or Honesty failed
 them, as by _Simlerus_, who first told him in
 his _Epitome Bibliothecæ Gesnerianæ_, that a
 Book of _Kirani_ and _Harpocration_
-{G} was in the _Vatican_ at _Rome_.
+σικῶν δυνάμεων was in the _Vatican_ at _Rome_.
 But, till all know more certainly and firmly,
-that _Harpocration_'s Book {G}
+that _Harpocration_'s Book πρί φυσικῶν
 is somewhere extant, and till it
 is tried, whether that Passage be in him,
 which is cited by _Tertullian_, it is my judgment
@@ -94,7 +93,7 @@ of this place, and immediately to
 vouch it for Truth, would be no man's act
 who remembers he is a Man: It was wittily
 said by a wise man of old
-{G}. _Ignorance is in the greatest
+άμνησία τό πλέον μέρος όι βροτοῖσιν. _Ignorance is in the greatest
 share of Mortals_, which though we find
 consentaneous to Truth in other Cases, yet
 then most, when we take upon us to open
@@ -105,7 +104,7 @@ _Puteans_, while this was in the Press, told
 me, they read in a Catalogue, which their
 Father had a most compleat one of all the
 Libraries in _Italy_, that _Harpocration_'s Book
-{G}, written Alphabetically,
+περί φυσικῶν δυνάμεων, written Alphabetically,
 was in the Library of Cardinal St. _Angelo_,
 which is now fallen to his Brother
 Cardinal _Farnesius_. Which thing, how far
@@ -195,15 +194,15 @@ a Monk of Constantinople, in the time of _Manuel_
 or _Emanuel Comnenus_, the Son of _Calojoannes_;
 the Conclusion of whose Life and
 Empire was foretold them both in two Greek
-Oracles. The Father's in this; {G}!
+Oracles. The Father's in this; Ω πῶς γεννήση βρωμα δεινῶν κοράκαν!
 i.e. _Oh, how shalt thou
 become the Food of unlucky Crows!_ And
 this _Calojoannes_ died somewhere in a place
 called in Greek _Crows-Nest_. And the Son's
-in this, {G}, i. e. _Certainly
+in this, Αλλ ύς άτη σε κερδανεῖ λόγου, i. e. _Certainly
 the last Syllable of a Word shall gain thee._
-Now ({G}) the last Syllable (and the two last
-Letters) of {G}, that Emperor's Name,
+Now (ηλ) the last Syllable (and the two last
+Letters) of Μανουήλ, that Emperor's Name,
 signifies Eight and Thirty: And he reigned so
 many years. Besides, Historians write, how
 at that time the Greek Nation was mightily
@@ -410,3 +409,6 @@ dishonest person to rob the _Vatican_, and other
 Libraries of them. But are now at length
 (maugre Envy and ill Will,) communicated to
 you, for your Benefit, Farewell.
+
+
+
