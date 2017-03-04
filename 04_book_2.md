@@ -41,7 +41,7 @@ as the Spleen of the She-Goat dries away,
 so much will the Patient's Spleen waste. And
 the Spleen of a Kid drunk _heals them that are
 bitten by Serpents;_ And the Rennet of it
-drank, or eaten roasted, _cures the Bloudy
+drank, or eaten roasted, _cures the Bloody
 Flux_: And boyled with Galls and Olives
 and eaten, _it stops the Flux of the Belly._ And
 the Spleen of this Creature roasted and eaten,
@@ -81,10 +81,24 @@ B.
 If one cuts its Tongue out, and let it go again
 alive, and make a superscription upon
 the Tongue thus, _XV Vox. chuoch, coja
-MH yogi edammoth,_ and shall lay it privately
+MH yogi edammoth_, and shall lay it privately
 upon a Woman, as she is asleep, _the
 Woman will tell whatever she has done all her
-Life time._
+Life time._ And the Ashes of a Frog, applied
+in a Plaster with Pitch, thicken an _Alopecia_,And applied with Vinegar, _they cure all bleeding
+at the Nose, of Ulcers, and Women's Fluxes.
+They also cure the Veins and Arteries, and Burns_
+And if one take a Frog alive in the Name of
+any one, when neither the Sun nor the Moon
+is above the Earth, and shall cut off its two
+hind feet with a pair of Scissors, and wrap it
+in Deer's skin, and tie the right to the right
+foot, and the left to the left, _he will curegouty persons without fail_. If any one would _cast
+the hair of his whole Body_, let him burn the
+skin of a Frog, and put it into the water of
+the Bath, he will cast it. _For an Alopecia,
+or falling of the hair_; Apply the ashes of little
+Frogs with Tar, and you will cure an _Alopecia_.
 
 
 
