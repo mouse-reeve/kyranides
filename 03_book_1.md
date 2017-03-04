@@ -224,7 +224,7 @@ the Grape, the Grape makes heavenly
 Wine! Before you have said this, send the
 Cup, Bowl or Flagon about, of which all do
 drink, and they break out in Joy, no man
-complaining or asking. For _ἐνοχία_ (?), i.e. _Exultation_.
+complaining or asking. For [_ἐνοχία_](https://lsj.translatum.gr/wiki/%E1%BC%90%CE%BD%CE%BF%CF%87%CE%AF%CE%B1), i.e. _Exultation_.
 The Juice of the Grape drunk
 causes great Joy. Plant it in every place.
 For neither the Solemnities of the Gods, nor
@@ -477,9 +477,9 @@ _Enlui_ is a Nightingale, known well enough.
 _Enanthus_ is a Stone of every colour, and it
 is dedicated to _Venus_, because it is of many
 colours. Rocket therefore heats, because
-here(?) is an Error among many, and they,
-know not the nature of every Herb. Against
-Lust and Erection. Therefore Priests eat Rue,
+there is an Error among many, and they,
+know not the nature of every Herb. _Against
+Lust and Erection_. Therefore Priests eat Rue,
 and the herb _Agnus castus_, for Chastity's sake,
 For green Rocket quenches Lust much, and
 frequent Erection, and Dreams. Wherefore
@@ -586,7 +586,7 @@ and drunk with Water and Honey, it cures
 those those that are troubled with the Stone,
 and the Stone-colick, and the Strangury.
 And let them drink it for sixteen days, every
-Morning, in Bed: But if you heat _φλοιώδες ροάς_ (?)
+Morning, in Bed: But if you heat _[φλοιώδες](https://lsj.translatum.gr/wiki/%CF%86%CE%BB%CE%BF%CE%B9%CF%8E%CE%B4%CE%B7%CF%82) [ῥοάς](https://lsj.translatum.gr/wiki/%E1%BF%A5%CE%BF%CE%AC%CF%82)_
 (which is Pomgranate-Rind) with it, it will
 do more good. _Hedone_ is a Sea-fish, which
 is called _Aphydion_, being often eaten, it cures
@@ -1461,12 +1461,12 @@ Then rub the _Storax_ a long time apart, and
 then with the beaten Roses and Balsam, and
 all mixt together, make Trochises: Afterwards
 suffumigate them, and dry them in a
-{G}, _thyinum_ of Tree-Moss and _Storax_, and
+θυινον, _thyinum_ of Tree-Moss and _Storax_, and
 Mastich, and Quails Claws, and _Costus_, which
 being dried, put them up in a Glass Vessel,
 and when you have occasion for Conception,
 powder to Trochises. And this is _Confectio
-aromatis sicca (?)_. And the Bird Estrich has an
+aromatis sicca_. And the Bird Estrich has an
 _Echidirum_, which is called _suffivium aridum_,
 the inner Skin of the Gizzard: This powdered,
 and given in Drink secretly, _procures Love
@@ -1525,9 +1525,9 @@ which you have a mind to.
 
 _[Ύπέρικον](https://lsj.translatum.gr/wiki/%E1%BD%91%CF%80%CE%B5%CF%81%CE%B9%CE%BA%CF%8C%CE%BD), is an Herb stupendously good; some
 call it Dionysiaca,_ i.e. Bacchus _and_ Jove
-_their Herb, προβατότυλιο (?), it is a Summer
+_their Herb, προβατότυλος (?), it is a Summer
 Plant._ Yperionis avis _is the Female Eagle,
-like to the Male Eagle. {G}, a Sea-fish not
+like to the Male Eagle. [Ϋκκος](https://lsj.translatum.gr/wiki/%E1%BD%95%CE%BA%CE%B7%CF%82), a Sea-fish not
 edible. Yenos, a Stone which is found in Rivers,
 it is a Stone having a very bloody Colour._
 
