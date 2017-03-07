@@ -10,7 +10,7 @@ Magical and Medical Vertues of _Stones,
 Herbs, Fishes, Beasts and Birds._
 
 A
-Work much sought for by the Leanred,
+Work much sought for by the Learned,
 but seen by few; said to have been
 in the Vatican-Library in _Rome_; but not
 to be found there, nor in all the Famous
