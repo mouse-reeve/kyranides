@@ -175,7 +175,7 @@ fumigated drives away the Viper, and this
 Stone drunk with Deer's Marrow cures the
 biting of a Viper.
 
-{G}, _Echidrius terrstris,_ i.e. _prickly Hog,
+{G}, _Echidrius terrestris,_ i.e. _prickly Hog,
 a Hedgehog, is a very naughty Animal._ When
 you have catcht this, salt it and dry it, that
 you may have a great Medicine. But throw
@@ -196,6 +196,86 @@ drink in _Oxymel to Leprous and Dropsical Persons._
 And in like manner also the Liver, and
 Kidneys, and Heart, and Lungs dried, _cure
 the same_.
+
+_Elurus,_ i.e. _a Cat, known to all._ If therefore
+one fall into a Convulsion or Epilepsie,
+or Dizziness, or if an Epilsepsie take a man,
+and he lie lifeless, if you presently put a live
+Cat upon him, the Convulsion, or Dizziness,
+or Apoplexy will immediately depart from
+him. But repeat this often _Rovis ba. Q. U.
+i. coueltho._ And its Dung applies with Oyl
+of Lilies _eases a Fever_. Bruised with dry
+Mustard and Vinegar, _it thickens an Alopecia._
+
+{G}, _a Deer, there are three kinds. It
+is a known Animal._ And one kind if called
+{G}, _i.e._ having broad and stately
+Horns; the second has round horns; the third
+is Female. The Male cannot couple with her
+but at a Spring. For when she is thirsty, she
+seeks a Spring, and when she drinks with great
+thirst and eagerness, then the Male gets upon
+her: For being constrained with desire
+of drinking, she cannot fly. At another time
+she will not endure to be coupled with:
+then she conceives presently. And this
+Animal would live five hundred years, if it
+were not taken. Give one spoonful, I say,
+of limature of the Horns, with _Hydromel_, for
+seven dayes, _to one troubled with the Colick,
+and he will be perfectly cured of that Disease._
+And the Gall with Honey _causes Conception._
+
+
+## Z.
+{G}, i.e. _a Lizard; there are three kinds;
+one is called {G},_ i.e. _Solar; another {G},_
+i.e. _Brazen; a third {G},_ i.e. _Green. And
+the Solar is known to all._ If any one cary
+the right hand of this in a golden Case about
+his Neck, having this written in it; _hu.
+va. ba. Ga. h. i. aulusare_, he will escape all
+dangerous Diseases, and he will never be
+troubled with Diseases as long as he carries it.
+The eyes also taken out while it is alive, in
+the Patient's name, and worn about the neck,
+_cure any Inflammation of the Eyes._ But you
+must let the Lizard go alive. And if you find
+two of them, the Female, _soil._ and Male, coupling,
+and catch then, and cut off the Sex, and
+give it to drink, _Friendship will become indissoluble;_
+and whensoever they couple, if you cast
+a Skin, or Cloth over them, _it will be very gracious._
+And the Tail carried, _causes Erection._
+And its Liver applies, _cures Corns._ And its
+Gall putrefied in Wine for eleven Days, in the
+open Air, and in the Sun in the Dog-days,
+_extripates, & extermines, the Hairs of the Eyelids._
+The Solar Lizard can do the same things
+that the green can do. If therefore you make
+two Nails, and with them put out a Lizard's
+Eyes, and put it into a course Earthen Pot,
+having Virgin-earth in it, and set it by for
+nine Days; when you open the Pot afterwards,
+you will find the Lizzard has its Sight:
+Then let it go alive. Make two Rings of your
+Shooe-leathers, and wear them, and put the
+right Eye in the Right, and the left Eye in
+the Left, and enclose the Stone Carbuncle in
+them, which in Greek is called {G}, and
+in the other a Jasper, having a Lizard doubled
+at its Belly, and inscribed, _Zibem Q. a. y. i.
+pyram_, and underneath, _Kaka, Fai. id est cucusas_,
+and wear it (in another Book it was
+thus _Ker. d ffe o. c. a. b._) For you will not
+be hurt in your Eyes all the Days of your
+Life; you will cure Ophthalmick with the
+Touch of your Ring, and hanging it about
+their Neck.
+
+
+
 
 
 
